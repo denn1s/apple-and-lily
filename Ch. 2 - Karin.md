@@ -1,4 +1,4 @@
-"I want to learn all about this," the girl said with a strangely determined expression. "Please be my teacher."
+"I want to learn all about this," the girl said, her expression determined in a way that made no sense to me. "Please be my teacher."
 
 My brain just completely shut down.
 
@@ -8,13 +8,13 @@ What the actual heck.
 
 Okay, Karin. Breathe. Who the hell is this person?
 
-I quickly looked her over. The girl had long, blonde hair that fell in perfect, glossy curls. You don't get hair like that by accident—that was expensive salon work. Her eyes were a bright, piercing brown, that looked almost red in the right light. She was wearing a simple white dress that probably cost more than my entire collection of limited-edition artbooks.
+I sized her up. She had long, blonde hair that fell in perfect, glossy curls. You don't get hair like that by accident; that was expensive salon work. Her eyes were a piercing brown that flashed red when they caught the light. She wore a simple white dress, but I'd bet it cost more than my entire collection of limited-edition artbooks.
 
 I'm not a religious person, but in that moment I was pretty sure this is what angels looked like. Or goddesses. Some kind of divine being, anyway. No human being looks that… perfect.  
 
 So what was this perfect specimen of a normie doing in my room?
 
-My eyes wandered to my monitor. The cursor blinking impatiently at the end of a sentence I was in the middle of writing. That was the really spicy part of the chapter. The part that was definitely not rated for general audiences.
+My eyes wandered to my monitor. The cursor was blinking impatiently at the end of a sentence I was in the middle of writing. That was the really spicy part of the chapter. The part that was definitely not rated for general audiences.
 
 My body moved before my one brain cell could catch up. Pure, overwhelming panic took over. I had to hide the screen. Right now.
 
@@ -40,19 +40,19 @@ Ignoring her, I tried to untangle my limbs and push myself up. When she extended
 
 Oh no. Those pages were definitely not safe for innocent eyes.
 
-"Don't!" I pretty much shouted, then quickly added, "I mean—don't worry, I got this!"
+"Don't!" I shouted, then quickly added, "I mean—don't worry, I got this!"
 
-In one frantic motion, I lunged forward, snatching the papers from her hand. I scrambled across the floor, grabbing fistfuls of my scattered work, crumpling more than a few sheets in my panic. I shoved the messy bundle back into the binder without looking.
+In one frantic motion, I lunged forward, snatching the papers from her hand. I scrambled across the floor and started jamming the scattered pages together, crumpling more than a few sheets in my panic. I shoved the messy bundle back into the binder without looking.
 
 "Really, it's fine," I said, trying to make my voice sound less unhinged than what I really was.
 
-Okay. Think, Karin, think. First take a moment to collect yourself. What do normal people do in these situations?
+Okay. Think, Karin, think. First take a moment to collect yourself. Okay. What do normal people do in these situations?
 
 "Do you... want something to drink?" I asked, finally managing to get to my feet and brush myself off. "You can wait here."
 
-I pointed toward the low table in the center of my room. The girl looked at it with a flicker of confusion crossing her face. She moved toward it and tried to lower herself onto a cushion with stiff movements that screamed, _I have never sat on the floor in my life_.
+I pointed toward the low table in the center of my room. The girl looked at it, a flicker of confusion crossing her face. She moved toward it and tried to lower herself onto one of the cushions, her stiff movements where screaming, *I have never sat on the floor in my life*.
 
-As she settled, my eyes landed on the manga she had placed on the table. My gaze flicked from the book to her earnest, but still confused face. She said she wanted to learn. But starting with this was like trying to learn surfing by jumping into a tsunami.
+Once she was settled, my eyes landed on the manga she had placed on the table. My gaze darted from the book to her earnest, but still unsettled face. She said she wanted to learn. But starting with this was like trying to learn surfing by jumping into a tsunami.
 
 Before she could get any ideas, I darted forward, snatched the book off the table, and shoved it back onto a random shelf. I grabbed a different one—_First Blossom_, a story so sweet and innocent it was practically a children's book—and put it in front of her.
 
@@ -60,13 +60,19 @@ Before she could get any ideas, I darted forward, snatched the book off the tabl
 
 Then I practically ran the few steps needed to reach the kitchen by the entrance, putting as much distance between us as possible in this tiny room. Well, more than a kitchen, it was really just a glorified counter with a mini-fridge and a sink, but right now it felt like a fortress.
 
-Okay. First things first, drinks. What do you even serve someone like her? She looks like she exclusively drinks mineral water imported from some secret mountain spring in Switzerland.
+Okay. First things first: drinks. What do you even serve someone like her? She looks like she exclusively drinks mineral water imported from some secret mountain spring in Switzerland. 
 
-Tea? That's what fancy girl always drink in manwha. I might have some green tea bags somewhere, though it's probably not fancy enough. She's probably used to Earl Grey or some other high-class tea I can't even pronounce. Well, green tea is all I've got, and beggars can't be choosers.
+Tea? That's what fancy girls always drink in manhwa. I might have some green tea bags somewhere; surely she's used to Earl Grey or some other high-class tea I can't even pronounce. Well, green tea is all I've got, and beggars can't be choosers.
+
+Okay. First things first: drinks. What do you even serve someone like her? She looks like she exclusively drinks mineral water imported from some secret mountain spring in Switzerland. 
+
+Tea? That's what fancy girls always drink in manhwa. I might have some green tea bags somewhere... Well, she's surely used to Earl Grey or some other high-class tea I can't even pronounce. Whatever, green tea is all I've got, and beggars can't be choosers.
 
 I filled the electric kettle and flipped the switch. Its soft hum was a welcome noise in the suffocating silence. I leaned against the counter, took a deep breath, and tried to force my brain to work.
 
-Alright. She definitely is in some of my lectures, I think I have seen her before. But it was more like spotting a celebrity from across a crowded room. You notice them, maybe even admire from a distance, but the idea of actually approaching them never even crosses your mind. Not that I've ever met a celebrity. But the point is she's so far removed from a social outcast like me that we might as well be different species. I'd never even considered the possibility of talking to her.
+Alright. I think I've seen her before, maybe in some of my lectures. But seeing her was always more like spotting a celebrity from across a crowded room. You notice them, maybe even admire them from a distance, but the idea of actually talking to them doesn't even cross your mind. Not that I've ever met a celebrity, but you get the point.
+
+The fact is, she's so far removed from a social outcast like me that we might as well be different species. I'd never even considered the possibility of us having a conversation.
 
 So, what was actually going on here?
 
@@ -74,7 +80,7 @@ She must have come for something class-related. That's the only logical explanat
 
 She must have gotten curious about it. A pure, sheltered soul like her has probably never even heard the word "yuri" before, so whatever she saw in that book must have been a complete culture shock for her.
 
-I risked another glance over the counter. She had picked up _First Blossom_ and was carefully turning the pages. As I watched, her eyes widened slightly and her lips parted. I could see emotions quickly flickering across her face with each page—surprise, curiosity, maybe even fascination. She was absolutely radiating interest, shining so brightly I had to shield my eyes.
+I risked another glance over the counter. She had picked up _First Blossom_ and was carefully turning the pages. As I watched, her eyes widened slightly and her lips parted. I could see emotions quickly flipping one after the other across her face with each page—surprise, curiosity, maybe even fascination. She was absolutely radiating interest, shining so brightly I had to shield my eyes.
 
 Yup. She's definitely closeted.
 
@@ -104,7 +110,7 @@ My brain stalled for a second.
 
 "That's so impressive!" she said, her smile widening. "Can I read something you've written?"
 
-Nope. Absolutely not. "Sure," I said, then I slapped myself in my mind. "but maybe after you've read a bit more. To get used to the genre, you know?" My writing was definitely not beginner-friendly. 
+Nope. Absolutely not. "Sure," I said, then I mentally slapped myself. "But maybe after you've read a bit more. To get used to the genre, you know?" My writing was definitely not beginner-friendly. 
 
 I stood up and walked over to my collection of "safe for work" doujinshi. As I ran my finger along the spines, I called over my shoulder, "What caught your eye in the book you just read? Anything specific?"
 
@@ -112,7 +118,7 @@ After a moment of thinking, she answered. "There seemed to be a lot of hand hold
 
 I nodded to myself. Of course. The classic. I pulled out a few thin volumes. "Take these home with you," I said, turning back to her.
 
-The mention of "home" made me pause. "Where are you staying, anyway?"
+My own mention of "home" made me pause. "Where are you staying, anyway?"
 
 "Oh, in the room next door," she said simply.
 
@@ -124,7 +130,7 @@ Ah, of course. The room next to mine. The one everyone called the "Princess Room
 
 That room was the largest in the building, the only one that had been renovated recently. The Grand Sage—our dorm mother—supposedly charged an exorbitant amount for it. It wouldn't be a stretch to say that our rent was cheap thanks to that one room.
 
-"Right. Well, in that case, you can just give these back whenever." I placed the small stack of books on the table. "So, handholding, huh?"
+"Right. Well, in that case, you can just give these back whenever." I placed the small stack of books on the table. "So, hand holding, huh?"
 
 She nodded, but looked a bit confused.
 
@@ -134,7 +140,7 @@ She immediately straightened up, her expression turning serious.
 
 "Find one of your girl friends," I instructed. "Hold her hand, and look directly into her eyes for ten seconds. Then, you'll report back to me what you felt."
 
-That should do the trick. Not that I could claim to be any more experienced on the subject; at most I had years of reading and writing about it. That had to count for something, right?
+That should do the trick. Not that I could claim to be any more experienced on the subject; at most I had years of reading and writing about it. But that had to count for something, right?
 
 She nodded once, completely solemn. "Would any girl do?"
 
@@ -158,19 +164,26 @@ She smiled, pleased, and smoothly took both of my hands in hers.
 
 A jolt, electric and hot, shot through me. Her hands were soft. And warm. 
 
-The instant I felt her warmth my hands ignited. I could the burning heat rising like molten lava up from my hands, crawling through my veins, scalding a path up my arms and into my neck. I couldn't let it. 
+The instant I felt her warmth, my hands ignited. I could feel the burning heat rising like molten lava from my palms, crawling through my veins, scalding a path up my arms and into my neck. I couldn't let her see it.
 
 _Why did I have to tell her to keep eye contact?_
 
-I couldn't look away. I couldn't blush. This was losing battle. She was staring right at me. Those impossibly red eyes weren't just looking, they were _drilling_. Directly into my soul, right where I kept all my embarrassing secrets. Hell, it was like she'd found the freaking Treasury of Babylon, but it was filled with every cringey, degenerate thought I'd ever had. And it was dang full.
+Her face grew closer and closer. I couldn't look away. I couldn't stop the blush. This was a losing battle. She was staring right at me. Those impossibly red eyes weren't just looking, they were _drilling_. Directly into my soul, right where I kept all my embarrassing secrets. Hell, it was like she'd found the freaking Treasury of Babylon, but it was filled with every cringey, degenerate thought I'd ever had. And it was dang full.
 
-Her face seemed to grow closer and closer. Her eyes like bloody rubies creeping closer and closer. I wanted to run... but they where so gosh darn beautiful. 
+The space between us collapsed. Her eyes, like bloody rubies, crept closer. I wanted to run... but they were so gosh darn beautiful.
 
-Those eyes. They were so clear. So focused. And they were going to see everything.
+Those eyes. They were so clear. So focused. They were going to see everything.
 
-My heart hammered against my ribs like a time bomb.
+*Thump.*
 
-Then... blank.
+My lungs seized the last dregs of air hitched in my throat.
 
-That's the last thing I remember from the night I met her. 
+*Thump.*
 
+My vision darkened, tunneling down to two burning points of red.
+
+*Thump.*
+
+And then everything went black.
+
+That's the last thing I remember from the night I met her.
