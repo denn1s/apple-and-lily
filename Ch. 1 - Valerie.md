@@ -3,15 +3,15 @@ It’s just a door. There really is nothing special about it. All I have to do i
 
 I took yet another deep breath.
 
+I have to do this. My grades for these first few months... well, they weren't good. At least not in my computer science courses. 
+
 This girl could help me. I'm sure she could.
 
 Every night, without fail, I see her silhouette from the small balcony of my own room. She's always hunched over the bright glow of a screen. Her fingers flying across the keys with quick, crisp clicks. Surely she must know a lot about computers.
 
 And I need that help. I really, really need it.
 
-If I fail my courses now, Mother will definitely come for me. I can already hear the disappointment in her voice. She will pull me from university and my life will go back to the way it was before. 
-
-I won’t allow that. I can’t go back.
+If I fail my courses now, Mother will definitely come for me... She will pull me from university and my life will go back to the way it was before. Back to the glaring lights of the gallery, the endless, torturous classes, and whatever it was that I was supposed to become. I chose computer science as my mayor just to get away from it all. I can't go back. I have to do this.
 
 After one final breadth, I finally give the door a soft, polite tap.
 
@@ -63,13 +63,15 @@ To get to it, I had to move one of the little sculptures. I picked it up careful
 
 I carefully took volume two from the shelf and put the little statue back, trying to place her in the exact same position as it was before I moved it.
 
-The book's cover was soft in my hands, its surface reflecting the light. It showed two girls looking directly into each other's eyes, their noses almost touching. One had pure white hair, just like the sculpture. The other, with darker hair, held the white-haired girl’s jaw with a confident smile on her face. The art style didn't follow any of the schools I was forced to learn in art class. There was no sense of balance; just a very aggressive framing of the characters. And yet, I could feel the passion that went into creating it. It was all so fascinating.
+The book's cover was soft in my hands, its surface reflecting the light. It showed two girls looking directly into each other's eyes, their noses almost touching. One had pure white hair, just like the sculpture. The other, with darker hair, held the white-haired girl’s jaw with a confident smile on her face. The art style followed none of the rigid, suffocating rules my tutors had beaten into me for years. There was no sense of balance, no perfect composition—just raw, aggressive feeling. So many feelings...
+
+I had always thought art was dull. Cruel. A colorless cage of rules and expectations. But this... this was alive. In every line and shadow, I could feel a love and passion I never knew possible. This was a whole new world.
 
 I caressed the cover. My heart was pounding. Was this… excitement? When was the last time I felt this? Had I ever? A smile I couldn't stop was forming on my lips.
 
-This was a whole new world.
+Who cares about failing some courses? Who cares what Mother would say?
 
-I had always thought art was dull. Cruel. Colorless. But not this. I could feel so much love in every detail.
+Suddenly, the fear of my classes and the cold dread of her voice where just… gone. Holding this book, surrounded by all this passion, was like taking my first real breath. This was important. This was everything.
 
 I didn't think I was capable of feeling passion anymore.
 
