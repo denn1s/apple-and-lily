@@ -29,27 +29,29 @@ I pushed the door open, and I was immediately surrounded by countless colors—m
 
 So many different colors. Was the world always so... vibrant?
 
-The room was filled wall to wall, floor to ceiling, with strange and wonderful things. Shelves covered every surface, overflowing with books with painted spines of every shade imaginable. There was not an inch of free space.
+The room was filled wall to wall, floor to ceiling, with strange and wonderful things. Shelves covered every surface, overflowing with books that had painted spines of every shade imaginable. In front of the books, an army of tiny sculptures of girls with flowing, jewel-toned hair. Atop the shelves, larger statues of strange mechanical robots where depicting epic battles. The walls themselves were barely visible; the few gaps between the shelves where hidden behind a collage of paper tapestries, and even the ceiling was a sky of painted faces, all looking down at me with impossibly large, expressive eyes.
 
-I was right to come here. She must be very smart if she reads this much.
+There was not an inch of free space.
+
+I was right to come here. She had so many books. Surely, she must be very smart if she reads this much.
 
 In the center of the room was a low wooden table, covered by a thick, heavy blanket with a beautiful pattern. There were no chairs, only soft, flat cushions on the floor around it.
 
-In the back corner, a bed was tucked against two walls covered in colorful illustrations of smiling girls. Even the ceiling above it had similar pictures. The bed itself was unmade, even this late at night, with clothes and... other things... scattered across the sheets. Had she woken up from a nap and gone straight to her computer?
+In the back corner, a bed was tucked against two walls covered in colorful illustrations of smiling girls. The bed itself was unmade, even this late at night, with clothes and... other things... scattered across the sheets. Had she woken up from a nap and gone straight to her computer?
 
 And there she was.
 
-Just as I'd seen from my balcony, she was hunched over the bright screen of her computer. Even her case was beautifully decorated, glowing with bright, blinking lights. Her keyboard shone with a rainbow of its own as she typed, filling the room with a rhythmic clicking.
+Just as I'd seen from my balcony, she was hunched over the bright screen of her computer. Even her computer was beautifully decorated, glowing with bright, blinking lights. Her keyboard shone with a rainbow of its own as she typed, filling the room with a rhythmic clicking.
 
-She wore huge round glasses that reflected the screen, hiding her eyes. Her deep black hair was twisted up messily on top of her head, held in place with a pencil. Her back curved forward as she chewed on a second pencil, her expression seemed frustrated from this angle, but she had yet to turn around.
+She wore huge round glasses that reflected the screen, hiding her eyes. Her deep black hair was twisted up messily on top of her head, held in place with a pencil. Her back curved forward as she chewed on a second pencil, with an expression that seemed frustrated from this angle, but she had yet to turn around.
 
 "Pass me volume two of *The Garden of Roses* while you are at it," she said, still focused on the screen. "It's on the back shelf, on the third row."
 
 I was here to ask for a favor. I couldn't refuse such a simple request, so I turned to the shelves.
 
-Now I could see them up close. In front of the books, there were… small sculptures? Statues? Tiny, perfect dolls of girls in all sorts of poses. They were so detailed. Did she make them herself?
+Now I could see them up close. In front of the books, the small statues where perfect dolls of girls in all sorts of poses. They were so detailed.
 
-I was almost afraid to touch them. They looked so fragile.
+I was almost afraid to touch them since they looked so fragile.
 
 The books behind them were neatly organized, in stark contrast to her bed and desk. She probably cared more about these books than her living space. Such an interesting person.
 
@@ -77,7 +79,7 @@ I walked over to the girl in the corner and held the book in front of me.
 
 "Took you long enough," she mumbled, finally turning in her chair. "Why are you so tame today, eh Ri… sa…"
 
-Her words died in her throat. Her mouth dropped open, her glasses sliding down her nose as she saw me.
+Her words died in her throat. Her mouth dropped open. Her glasses sliding down her nose as she saw me.
 
 I held the book out to her with both hands.
 
