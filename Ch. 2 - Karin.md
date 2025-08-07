@@ -38,7 +38,7 @@ She looked genuinely worried. Her eyebrows were knitted together, and her eyes�
 
 Ignoring her, I tried to untangle my limbs and push myself up. When she extended her hand to help, I shook my head quickly—I wasn't in the right mind space for that. She knelt down beside me instead, clutching the manga to her chest with one hand while gathering my scattered notes with the other.
 
-Oh no. Those pages were definitely not safe for innocent eyes.
+Oh no. Those pages were definitely not safe for innocent eyes... and my own eyes where about to lose their innocence if they kept following the ends of that dress...
 
 "Don't!" I shouted, then quickly added, "I mean—don't worry, I got this!"
 
@@ -56,17 +56,13 @@ Once she was settled, my eyes landed on the manga she had placed on the table. M
 
 Before she could get any ideas, I darted forward, snatched the book off the table, and shoved it back onto a random shelf. I grabbed a different one—_First Blossom_, a story so sweet and innocent it was practically a children's book—and put it in front of her.
 
-"Wait here," I said in a shaky voice. "I'll go get those drinks."
+"Here, you might like this one better," I said in a shaky voice. "I'll go get those drinks."
 
-Then I practically ran the few steps needed to reach the kitchen by the entrance, putting as much distance between us as possible in this tiny room. Well, more than a kitchen, it was really just a glorified counter with a mini-fridge and a sink, but right now it felt like a fortress.
+I practically ran the few steps needed to reach the kitchen by the entrance, putting as much distance between us as was possible in this tiny room. Well, more than a kitchen, it was really just a glorified counter with a mini-fridge and a sink, but right now it felt like a fortress.
 
 Okay. First things first: drinks. What do you even serve someone like her? She looks like she exclusively drinks mineral water imported from some secret mountain spring in Switzerland. 
 
 Tea? That's what fancy girls always drink in manhwa. I might have some green tea bags somewhere; surely she's used to Earl Grey or some other high-class tea I can't even pronounce. Well, green tea is all I've got, and beggars can't be choosers.
-
-Okay. First things first: drinks. What do you even serve someone like her? She looks like she exclusively drinks mineral water imported from some secret mountain spring in Switzerland. 
-
-Tea? That's what fancy girls always drink in manhwa. I might have some green tea bags somewhere... Well, she's surely used to Earl Grey or some other high-class tea I can't even pronounce. Whatever, green tea is all I've got, and beggars can't be choosers.
 
 I filled the electric kettle and flipped the switch. Its soft hum was a welcome noise in the suffocating silence. I leaned against the counter, took a deep breath, and tried to force my brain to work.
 
@@ -76,19 +72,19 @@ The fact is, she's so far removed from a social outcast like me that we might as
 
 So, what was actually going on here?
 
-She must have come for something class-related. That's the only logical explanation. And I, being the social genius that I am, mistook her for Risa and let her in without even looking. Then I had the bright idea of asking her to grab a book for me. _That_ book.
+She probably came for something class-related. That's the only logical explanation. And I, being the social genius that I am, mistook her for Risa and let her in without even looking. Then I had the bright idea of asking her to grab a book for me. _That_ book.
 
 She must have gotten curious about it. A pure, sheltered soul like her has probably never even heard the word "yuri" before, so whatever she saw in that book must have been a complete culture shock for her.
 
-I risked another glance over the counter. She had picked up _First Blossom_ and was carefully turning the pages. As I watched, her eyes widened slightly and her lips parted. I could see emotions quickly flipping one after the other across her face with each page—surprise, curiosity, maybe even fascination. She was absolutely radiating interest, shining so brightly I had to shield my eyes.
+I risked another glance over the counter. She had picked up _First Blossom_ and was carefully turning the pages. As I watched, her eyes widened slightly and her lips parted. I could see emotions quickly flipping one after the other across her face with each new page—surprise, curiosity, maybe even fascination. She was absolutely radiating interest, shining so brightly I had to shield my eyes.
 
 Yup. She's definitely closeted.
 
-The whole scene suddenly made terrifying sense. If this was her first real exposure to girls liking other girls, of course she'd be acting this strange. I'd been there myself. You'd think in this day and age people would figure this stuff out sooner, but I guess rich families try to keep their kids in a bubble. Wouldn't want to run out of family heirs, right?
+The whole scene suddenly made terrifying sense. If that was her first real exposure to girls liking other girls, of course she'd be acting this strange. You'd think in this day and age people would figure this stuff out sooner, but I guess rich families try to keep their kids in a bubble. Wouldn't want to run out of family heirs, right?
 
 I let out a long, drawn out breath that had been trapped in my chest. My heart was still pounding, but it helped me relax a little.
 
-She could definitely use some help.
+She could definitely use some help. I'd been there myself once.
 
 Okay, let's make a plan. I'll be her "teacher" for a day, as she wanted. I could set her up with some easy-to-read, introductory-level manga. The safe stuff. Let her dip her toes in the water, see how it feels. Then, I'll give her a simple way to test her feelings, a small task to help her figure things out. Finally, I'll send her on her way and we'll never have to see each other again.
 
@@ -138,7 +134,7 @@ She nodded, but looked a bit confused.
 
 She immediately straightened up, her expression turning serious.
 
-"Find one of your girl friends," I instructed. "Hold her hand, and look directly into her eyes for ten seconds. Then, you'll report back to me what you felt."
+"Find one of your girl friends," I instructed. "Hold her hand, and look directly into her eyes for ten seconds. Then, you'll report back to me. Okay?"
 
 That should do the trick. Not that I could claim to be any more experienced on the subject; at most I had years of reading and writing about it. But that had to count for something, right?
 
@@ -168,7 +164,7 @@ The instant I felt her warmth, my hands ignited. I could feel the burning heat r
 
 _Why did I have to tell her to keep eye contact?_
 
-Her face grew closer and closer. I couldn't look away. I couldn't stop the blush. This was a losing battle. She was staring right at me. Those impossibly red eyes weren't just looking, they were _drilling_. Directly into my soul, right where I kept all my embarrassing secrets. Hell, it was like she'd found the freaking Treasury of Babylon, but it was filled with every cringey, degenerate thought I'd ever had. And it was dang full.
+Her face grew closer and closer. I couldn't look away. I couldn't stop the blush. This was a losing battle. She was staring right at me. Those impossibly red eyes weren't just looking, they were _drilling_. Directly into my soul, right where I kept all my embarrassing secrets. Hell, it was like she'd found the door to the freaking Treasury of Babylon, but it was filled with every cringey, degenerate thought I'd ever had. And it was dang full.
 
 The space between us collapsed. Her eyes, like bloody rubies, crept closer. I wanted to run... but they were so gosh darn beautiful.
 
