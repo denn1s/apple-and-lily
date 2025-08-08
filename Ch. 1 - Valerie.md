@@ -3,15 +3,15 @@ It’s just a door. There really is nothing special about it. All I have to do i
 
 I took yet another deep breath.
 
-I have to do this. My grades for these first few months... well, they weren't good. At least not in my computer science courses. 
+I have to do this. My grades for these first few months... well, they weren't great. At least not in my computer science courses. But well, what did I expect? I only chose that mayor because it was the furthest thing from art that I could think of.
 
 This girl could help me. I'm sure she could.
 
-Every night, without fail, I see her silhouette from the small balcony of my own room. She's always hunched over the bright glow of a screen. Her fingers flying across the keys with quick, crisp clicks. Surely she must know a lot about computers.
+Every night, without fail, I see her silhouette from the tiny balcony of my own room. She’s always hunched over the bright glow of a screen, her fingers flying across the keys with crisp, rapid clicks. Surely she must know a great deal about computers.
 
 And I need that help. I really, really need it.
 
-If I fail my courses now, Mother will definitely come for me... She will pull me from university and my life will go back to the way it was before. Back to the glaring lights of the gallery, the endless, torturous classes, and whatever it was that I was supposed to become. I chose computer science as my mayor just to get away from it all. I can't go back. I have to do this.
+If I fail my courses now, Mother will definitely come for me... She will pull me from university and my life will go back to the way it was before. Back to the suffocating galleries, those endless, mind-numbing art lessons, and the condescending smirks of Mother's precious "artists" who think they're so terribly important. I simply cannot go back to that. I have to do this.
 
 After one final breadth, I finally give the door a soft, polite tap.
 
@@ -25,15 +25,13 @@ I knock once more. This time with a solid, firm tap.
 
 Her wording was strange, but that was an invitation to enter, wasn't it?
 
-I pushed the door open, and I was immediately surrounded by countless colors—more than I had ever seen in my entire life.
+I pushed the door open, and I was immediately surrounded by countless colors. More than what I had ever seen in my life. 
 
 So many different colors. Was the world always so... vibrant?
 
-The room was filled wall to wall, floor to ceiling, with strange and wonderful things. Shelves covered every surface, overflowing with books that had painted spines of every shade imaginable. In front of the books, an army of tiny sculptures of girls with flowing, jewel-toned hair. Atop the shelves, larger statues of strange mechanical robots where depicting epic battles. The walls themselves were barely visible; the few gaps between the shelves where hidden behind a collage of paper tapestries, and even the ceiling was a sky of painted faces, all looking down at me with impossibly large, expressive eyes.
+The room was filled wall to wall, floor to ceiling, with strange and wonderful things. Shelves covered every surface, overflowing with books that had painted spines of every shade imaginable. In front of the books, an army of tiny sculptures of girls with all kinds of hairstyles. Atop the shelves, statues of strange robots where depicting epic battles. The walls themselves were barely visible; the few gaps between the shelves where hidden behind a collage of posters, and even the ceiling was a sky of painted faces, all looking down at me with impossibly large eyes.
 
 There was not an inch of free space.
-
-I was right to come here. She had so many books. Surely, she must be very smart if she reads this much.
 
 In the center of the room was a low wooden table, covered by a thick, heavy blanket with a beautiful pattern. There were no chairs, only soft, flat cushions on the floor around it.
 
@@ -41,11 +39,13 @@ In the back corner, a bed was tucked against two walls covered in colorful illus
 
 And there she was.
 
-Just as I'd seen from my balcony, she was hunched over the bright screen of her computer. Even her computer was beautifully decorated, glowing with bright, blinking lights. Her keyboard shone with a rainbow of its own as she typed, filling the room with a rhythmic clicking.
+Just as I'd seen from my balcony, she was hunched over the bright screen of her computer. Like the rest of her room, her computer was beautifully decorated, glowing with bright, blinking lights. Even her keyboard shone with light of its own as she typed, filling the room with a pretty dancing rainbow.
 
 She wore huge round glasses that reflected the screen, hiding her eyes. Her deep black hair was twisted up messily on top of her head, held in place with a pencil. Her back curved forward as she chewed on a second pencil, with an expression that seemed frustrated from this angle, but she had yet to turn around.
 
 "Pass me volume two of *The Garden of Roses* while you are at it," she said, still focused on the screen. "It's on the back shelf, on the third row."
+
+Despite already being surrounded by literal stacks of books, she seemed so completely absorbed in her work that she couldn't spare even a moment to look away. The sheer number of volumes scattered around her room made it clear she must be incredibly intelligent–far more so than anyone I'd encountered in Mother's circles.
 
 I was here to ask for a favor. I couldn't refuse such a simple request, so I turned to the shelves.
 
@@ -53,19 +53,17 @@ Now I could see them up close. In front of the books, the small statues where pe
 
 I was almost afraid to touch them since they looked so fragile.
 
-The books behind them were neatly organized, in stark contrast to her bed and desk. She probably cared more about these books than her living space. Such an interesting person.
+The books behind them were neatly organized, in stark contrast to her bed and desk. She probably cared more about these books than her living space. The first set was labeled "Her Lips," with large numbers on the spines that went all the way to volume ten. It seemed to be a romance novel, but I had never heard of one that spanned ten entire books.
 
-The first set of books was labeled "Her Lips," with large numbers on the spines that went all the way to volume ten. It seemed to be a romance novel, but I had never heard of one that spanned ten entire books.
+I kept looking until I found it. *The Garden of Roses.*
 
-I kept looking until I found it. "The Garden of Roses."
-
-To get to it, I had to move one of the little sculptures. I picked it up carefully. It was a girl with white hair, wearing a very short, pleated skirt. The artist had put so much effort into it… they had even modeled the inside of her skirt with incredible detail. I couldn't help but feel impressed.
+To get to it, I had to move one of the little sculptures. I picked it up carefully. It was a girl with white hair, wearing a very short, pleated skirt. It seemed to be mass-produced, but I could still see that the sculptor put a lot of effort into it… they had even modeled the inside of her skirt with incredible detail. I couldn't help but feel impressed.
 
 I carefully took volume two from the shelf and put the little statue back, trying to place her in the exact same position as it was before I moved it.
 
-The book's cover was soft in my hands, its surface reflecting the light. It showed two girls looking directly into each other's eyes, their noses almost touching. One had pure white hair, just like the sculpture. The other, with darker hair, held the white-haired girl’s jaw with a confident smile on her face. The art style followed none of the rigid, suffocating rules my tutors had beaten into me for years. There was no sense of balance, no perfect composition—just raw, aggressive feeling. So many feelings...
+The book's cover was soft in my hands, its surface reflecting the light. It showed two girls looking directly into each other's eyes, their noses almost touching. One had pure white hair, just like the sculpture. The other, with darker hair, held the white-haired girl’s jaw with a confident smile on her face. The art style followed none of the rigid rules my tutors had beaten into me for years. There was no sense of balance, no perfect composition—just raw, aggressive feeling. So many feelings...
 
-I had always thought art was dull. Cruel. A colorless cage of rules and expectations. But this... this was alive. In every line and shadow, I could feel a love and passion I never knew possible. This was a whole new world.
+I had always thought art was dull. Cruel. A colorless cage of rules and expectations. But this... this was alive. In every line and shadow, I could feel a love and passion I never knew possible. This was a whole different world.
 
 I caressed the cover. My heart was pounding. Was this… excitement? When was the last time I felt this? Had I ever? A smile I couldn't stop was forming on my lips.
 
