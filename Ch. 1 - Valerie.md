@@ -1,9 +1,8 @@
-
 It’s just a door. There really is nothing special about it. All I have to do is knock.
 
 I took yet another deep breath.
 
-I have to do this. My grades for these first few months... well, they weren't great. At least not in my computer science courses. But well, what did I expect? I only chose that mayor because it was the furthest thing from art that I could think of.
+I have to do this. My grades for these first few months… well, they weren't great. At least not in my computer science courses. But well, what did I expect? I only chose that mayor because it was the furthest thing from art that I could think of.
 
 This girl could help me. I'm sure she could.
 
@@ -11,9 +10,9 @@ Every night, without fail, I see her silhouette from the tiny balcony of my own 
 
 And I need that help. I really, really need it.
 
-If I fail my courses now, Mother will definitely come for me... She will pull me from university and my life will go back to the way it was before. Back to the suffocating galleries, those endless, mind-numbing art lessons, and the condescending smirks of Mother's precious "artists" who think they're so terribly important. I simply cannot go back to that. I have to do this.
+If I fail my courses now, Mother will definitely come for me… She will pull me from university, and my life will go back to the way it was before. Back to the suffocating galleries, those endless, mind-numbing art lessons, and the condescending smirks of Mother's precious “artists” who think they're so terribly important. I simply cannot go back to that. I have to do this.
 
-After one final breadth, I finally give the door a soft, polite tap.
+After one final breath, I finally give the door a soft, polite tap.
 
 ...
 
@@ -21,39 +20,37 @@ But all I get in response is silence.
 
 I knock once more. This time with a solid, firm tap.
 
-"Huh? The hell are you knocking for. Just come in like you always do!"
+“Huh? The hells are you knocking for? Just come in like you always do!”
 
 Her wording was strange, but that was an invitation to enter, wasn't it?
 
 I pushed the door open, and I was immediately surrounded by countless colors. More than what I had ever seen in my life. 
 
-So many different colors. Was the world always so... vibrant?
+So many different colors. Was the world always so… vibrant?
 
-The room was filled wall to wall, floor to ceiling, with strange and wonderful things. Shelves covered every surface, overflowing with books that had painted spines of every shade imaginable. In front of the books, an army of tiny sculptures of girls with all kinds of hairstyles. Atop the shelves, statues of strange robots where depicting epic battles. The walls themselves were barely visible; the few gaps between the shelves where hidden behind a collage of posters, and even the ceiling was a sky of painted faces, all looking down at me with impossibly large eyes.
+The room was filled wall to wall, floor to ceiling, with strange and wonderful things. Shelves covered every surface, overflowing with books that had painted spines of every shade imaginable. In front of the books, an army of tiny sculptures of girls with all kinds of hairstyles. Atop the shelves, statues of strange robots were depicting epic battles. The walls themselves were barely visible; the few gaps between the shelves were hidden behind a collage of posters, and even the ceiling was a sky of painted faces, all looking down at me with impossibly large eyes.
 
 There was not an inch of free space.
 
 In the center of the room was a low wooden table, covered by a thick, heavy blanket with a beautiful pattern. There were no chairs, only soft, flat cushions on the floor around it.
 
-In the back corner, a bed was tucked against two walls covered in colorful illustrations of smiling girls. The bed itself was unmade, even this late at night, with clothes and... other things... scattered across the sheets. Had she woken up from a nap and gone straight to her computer?
+In the back corner, a bed was tucked against two walls covered in colorful illustrations of smiling girls. The bed itself was unmade, even this late at night, with clothes and… other things… scattered across the sheets. Had she woken up from a nap and gone straight to her computer?
 
 And there she was.
 
-Just as I'd seen from my balcony, she was hunched over the bright screen of her computer. Like the rest of her room, her computer was beautifully decorated, glowing with bright, blinking lights. Even her keyboard shone with light of its own as she typed, filling the room with a pretty dancing rainbow.
+Just as I'd seen from my balcony, she was hunched over the bright screen of her computer. Like the rest of her room, her computer was beautifully decorated, glowing with bright, blinking lights. Even her keyboard shone with a light of its own as she typed, filling the room with a pretty dancing rainbow.
 
 She wore huge round glasses that reflected the screen, hiding her eyes. Her deep black hair was twisted up messily on top of her head, held in place with a pencil. Her back curved forward as she chewed on a second pencil, with an expression that seemed frustrated from this angle, but she had yet to turn around.
 
-"Pass me volume two of *The Garden of Roses* while you are at it," she said, still focused on the screen. "It's on the back shelf, on the third row."
+“Pass me volume two of *The Garden of Roses* while you are at it,” she said, still focused on the screen. “It's on the back shelf, on the third row.”
 
-Despite already being surrounded by literal stacks of books, she seemed so completely absorbed in her work that she couldn't spare even a moment to look away. The sheer number of volumes scattered around her room made it clear she must be incredibly intelligent–far more so than anyone I'd encountered in Mother's circles.
+Despite already being surrounded by literal stacks of books, she seemed so completely absorbed in her work that she couldn't spare even a moment to look away. The sheer number of volumes scattered around her room made it clear she must be incredibly intelligent—far more so than anyone I'd encountered in Mother's circles.
 
 I was here to ask for a favor. I couldn't refuse such a simple request, so I turned to the shelves.
 
-Now I could see them up close. In front of the books, the small statues where perfect dolls of girls in all sorts of poses. They were so detailed.
+Now I could see them up close. In front of the books, the small statues were perfect dolls of girls in all sorts of poses. I was almost afraid to touch them since they looked so fragile.
 
-I was almost afraid to touch them since they looked so fragile.
-
-The books behind them were neatly organized, in stark contrast to her bed and desk. She probably cared more about these books than her living space. The first set was labeled "Her Lips," with large numbers on the spines that went all the way to volume ten. It seemed to be a romance novel, but I had never heard of one that spanned ten entire books.
+The books behind them were neatly organized, in stark contrast to her bed and desk. She probably cared more about these books than her living space. The first set was labeled “Her Lips,” with large numbers on the spines that went all the way to volume ten. It seemed to be a romance novel, but I had never heard of one that spanned ten entire books.
 
 I kept looking until I found it. *The Garden of Roses.*
 
@@ -61,15 +58,15 @@ To get to it, I had to move one of the little sculptures. I picked it up careful
 
 I carefully took volume two from the shelf and put the little statue back, trying to place her in the exact same position as it was before I moved it.
 
-The book's cover was soft in my hands, its surface reflecting the light. It showed two girls looking directly into each other's eyes, their noses almost touching. One had pure white hair, just like the sculpture. The other, with darker hair, held the white-haired girl’s jaw with a confident smile on her face. The art style followed none of the rigid rules my tutors had beaten into me for years. There was no sense of balance, no perfect composition—just raw, aggressive feeling. So many feelings...
+The book's cover was soft in my hands, its surface reflecting the light. It showed two girls looking directly into each other's eyes, their noses almost touching. One had pure white hair, just like the sculpture. The other, with darker hair, held the white-haired girl’s jaw with a confident smile on her face. The art style followed none of the rigid rules my tutors had beaten into me for years. There was no sense of balance, no perfect composition—just raw, aggressive feeling. So many feelings…
 
-I had always thought art was dull. Cruel. A colorless cage of rules and expectations. But this... this was alive. In every line and shadow, I could feel a love and passion I never knew possible. This was a whole different world.
+I had always thought art was dull. Cruel. A colorless cage of rules and expectations. But this… this was alive. In every line and shadow, I could feel a love and passion I never knew possible. This was a whole different world.
 
 I caressed the cover. My heart was pounding. Was this… excitement? When was the last time I felt this? Had I ever? A smile I couldn't stop was forming on my lips.
 
 Who cares about failing some courses? Who cares what Mother would say?
 
-Suddenly, the fear of my classes and the cold dread of her voice where just… gone. Holding this book, surrounded by all this passion, was like taking my first real breath. This was important. This was everything.
+Suddenly, the fear of my classes and the cold dread of her voice were just… gone. Holding this book, surrounded by all this passion, was like taking my first real breath. This was important. This was everything.
 
 I didn't think I was capable of feeling passion anymore.
 
@@ -77,13 +74,13 @@ I had made up my mind.
 
 I walked over to the girl in the corner and held the book in front of me.
 
-"Took you long enough," she mumbled, finally turning in her chair. "Why are you so tame today, eh Ri… sa…"
+“Took you long enough,” she mumbled, finally turning in her chair. “Why are you so tame today, eh, Ri… sa…”
 
-Her words died in her throat. Her mouth dropped open. Her glasses sliding down her nose as she saw me.
+Her words died in her throat. Her mouth dropped open. Her glasses were sliding down her nose as she saw me.
 
 I held the book out to her with both hands.
 
-"I want to learn all about this," I said in a clear voice. "Please be my teacher."
+“I want to learn all about this,” I said in a clear voice. “Please be my teacher.”
 
 I wanted to learn everything about this bright, colorful world.
 
