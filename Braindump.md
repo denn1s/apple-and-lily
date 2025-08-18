@@ -20,3 +20,10 @@ Lily reads a page "How to use your tonge to..."
 Stop! Karin says
 
 Lily plays with her tongue the rest of the chapter.
+
+
+Idea! Karins delusional fanfics
+
+- **The Pairing Name:** The pairing tag will change as she learns more. It can go from `Karin/Mysterious Girl` -> `Karin/Valerie Linden` -> `Karin/Lily`. The evolution of the pairing name itself becomes a subtle tracker of their relationship's progress.
+    
+- **The Tags:** The tags for each delusion can perfectly match the specific fantasy. A daydream about them sharing a quiet moment could be tagged `Fluff, Domestic Bliss, Hand Holding`. A nightmare scenario about her mother showing up could be tagged `Angst, Major Character Injury (to my soul), Misunderstandings`.
