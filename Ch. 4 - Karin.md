@@ -1,48 +1,50 @@
-Risa stood in the doorway, silhouetted against the morning light like some kind of harbinger of doom. The grin on her face was a masterpiece of unadulterated evil. It was the kind of smile that promised months, if not years, of relentless teasing. Her grin widened into something truly demonic.
+The grin on Risa’s face was one of pure evil. Not mischievous, evil. It was the kind of smile that promised months, maybe years, of relentless teasing. My fate was sealed, and she knew it.
 
-"Say the line," she commanded, her voice dripping with sadistic glee.
+"Say the line," she commanded, her voice dripping with a sadistic glee.
 
-I knew the line. Of course, I knew the line. It was the most ancient, most overused, most humiliating cliché in the entire multiverse. At this point, getting hit by a truck would be a significant improvement to my current situation.
+I knew the line. Of course, I knew the line. It was the most ancient, most overused, most humiliating cliche. At this point, getting hit by a truck would be a significant improvement to my current situation.
 
-I buried my face in my hands. My entire being recoiled, but the words were demanded by the cruel gods of comedy. With the last ounce of my dignity, I muttered the cursed phrase into my palms.
+I buried my face in my hands. My entire being recoiled, but the words were demanded by the cruel gods of comedy. Using up the last ounce remaining of my dignity, I muttered the cursed phrase into my palms.
 
 "...It's not what it looks like."
 
-The sound of a slow clap echoed in the room, each clap a new nail in my social coffin. Risa slowly walked in, even her steps sounded smug. The girl, the cause of all this, had already retreated to her side of the kotatsu and was sipping her tea as if nothing was wrong.
+Risa gave me a satisfied grin, then slowly clapped as she strolled into the room. Each clap felt like a gunshot straight into my skull, making my already pounding headache even worse.
 
-I braced myself for the laughter. Instead, she just sank to the floor next to me. She didn't say a word. She just sat there, a look of absolute, blissful peace on her face. She clasped her hands together, closed her eyes, and let out a long, serene exhale, as if she had just achieved enlightenment.
+The girl, the cause of this disaster, had already retreated to her side of the kotatsu and was sipping her tea as if she had done nothing wrong.
+
+I braced myself for Risa's mocking laughter. Instead, she just sat on the floor next to me. She didn't say a word. With a look of blissful peace on her face. She clasped her hands together, closed her eyes, and let out a long, serene exhale, as if she had just achieved enlightenment.
 
 "Thank you," she whispered with the reverence of a monk greeting the dawn. "Thank you for this precious, precious gift."
 
-Oh, this was so much worse than laughing. This wasn't just teasing; this was her carefully archiving the moment, tagging it under 'Karin's suffering' and 'Ultimate Blackmail Material' for easy access later. My life was over. I can already picture it...
+Oh, this was so much worse than laughing. Risa was carefully archiving the moment, tagging it under 'Karin's suffering' and 'Ultimate Blackmail Material' for easy access later. My life was over. I can already picture it...
 
 
 ### _Sixty Years Later_
 
 Pairings: Karin/Mysterious Girl
-Tags: Yuri, Rom-com, Existential Dread, I Wrote This Under a Panic Attack, Fluff
+Tags: Yuri, Rom-com, Existential Dread, Author Is Sleep Deprived, Fluff
 Summary: Karin and Risa enjoy a game of go while they reminisce about the past
 
-_The afternoon sun cast long shadows across the go board. Old Woman Karin, her face an outline of wrinkles, placed a stone with a decisive click. Across from her, Old Woman Risa chuckled, her shoulders shaking._
+_The afternoon sun cast long shadows across the go board. Old Woman Karin placed a stone with a strong click. Across from her, Old Woman Risa chuckled, her shoulders shaking._
 
 _“What is it now?” Old Woman Karin grumbled._
 
-_Risa wiped a tear from her eye. “Sorry… I just remembered it again.” She took a wheezing breath, trying to contain her laughter. “That face you made…” She finally managed to gasp out the words, “...‘It’s not what it looks like’...”_
+_Old Woman Risa wiped a tear from her eye. “Sorry… I just remembered it again.” She took a wheezing breath, trying to contain her laughter. “That face you made…” After a moment, she finally managed to gasp out the words, “...‘It’s not what it looks like’...”_
 
 _“IT’S BEEN SIXTY-THREE YEARS YOU OLD HAG!” Old Woman Karin roared, slamming her fist on the table and scattering the stones..._
 
 
-Risa completely ignored my existential crisis. Instead, she gave a good long look a the girl. For some reason, the girl waved at her.
+Risa completely ignored my existential crisis. Instead, she gave a good long look a the girl and for some reason, the girl waved at her.
 
-She dramatically grabbed my shoulder and pulled me into a huddle, turning our backs to the girl.
+She answered her with a quick courtesy smile, then suddenly grabbed my shoulder and yanked me into a huddle, turning our backs to the girl. The sharp pull made my stiff neck flare with pain, and I winced.
 
-"Okay, _Sensei_," she said in a whisper that was definitely not quiet enough. "Spill it. Who is this romcom-heroine bombshell, and what exactly was _that_?"
+"Okay, Sensei," she said in a whisper that was definitely not quiet enough. "Spill it. Who is this romcom-heroine bombshell, and what exactly was _that_?"
 
 Before my brain could even begin to formulate a lie, a polite voice answered from behind us.
 
 "I apologize. I was trying to share some of my drink with her."
 
-Risa and I both froze. Slowly, she turned her head back to me, her eyes wide with a new, even more mischievous light. She knew the girl could hear everything.
+Risa and I both froze. Slowly, she turned her head back to me, but her eyes where now wide with a mischievous light. She knew the girl could hear everything.
 
 "Okay... new question. Does she know she looks like your ideal waif—?"
 
@@ -50,54 +52,64 @@ I hissed, shoving her away before she could finish the sentence.
 
 We both whipped around to face the girl, who was watching us with a friendly smile, completely unfazed.
 
-"I'm not sure what she means," she said, with the serene cluelessness of a harem anime protagonist. "But my name is Valerie Linden. It's a pleasure to meet you."
+"I'm not sure what she means," she said, with all the cluelessness of a harem anime protagonist. "But my name is Valerie Linden. It's a pleasure to meet you."
 
-Risa, having decided she was now the master of ceremonies for this disaster, took charge.
+Having apparently decided she was the goddamn master of ceremonies, Risa took charge.
 
 "Okay, Valerie Linden," Risa declared, tapping a finger to her chin. "'Valerie' is way too normal for this dorm. We need something better." She started muttering to herself, her eyes narrowed in concentration. "Vale**rie** **Lin**den... rie lin... ri-ri... Got it! From this day forward, you shall be known as **Riri-hime**! It's perfect!"
 
-"Riri? Because of the sounds in the middle of my name? That's clever," she conceded. Risa loved giving nicknames to people. "But... where does the 'hime' come from?"
+“Riri? Because of the sounds in the middle of my name? That’s clever,” the girl said, tilting her head. Risa did love giving people dumb nicknames. “But… where does the ‘hime’ come from?”
 
-"I'm so glad you asked!" Risa beamed, launching into a full-blown presentation. "It's from the classic magical girl anime, _Magical Princess Riri_! She's this super cute princess who fights the forces of despair with her Rainbow Heart Scepter!" Risa was really selling it, conveniently leaving out the fact that the show was aimed at six-year-olds. "It has surprisingly dark themes, though! It can get very deep..."
+"I'm so glad you asked!" Risa beamed, launching into a full-blown presentation. "It's from the classic magical girl anime, _Magical Princess Riri_! She's this super cute princess who fights the forces of despair with her Rainbow Heart Scepter! It has surprisingly dark themes..." 
 
-I could feel my soul trying to crawl out of my body from second-hand embarrassment. I had to make it stop.
+She was really selling her trashy anime while conveniently skipping the part where the show was aimed at six-year-olds.
+
+I could feel my soul trying to claw its way out of my throat from secondhand embarrassment. 
 
 "I don't think I could call you Riri with a straight face," I blurted out. "How about... Lily?"
 
-It was close enough, right?
+Close enough, right?
 
-Risa immediately abandoned her anime pitch and yanked me back into a huddle. "Are you insane, _Sensei_?" she whispered frantically. "'Lily'? That is literally the most generic, overused name for a main character in the history of yuri! If you're trying to cast her as the heroine, you have to be more creative than that!"
+Risa immediately abandoned her anime pitch and yanked me back into a huddle. "Are you insane, _Sensei_?" she whispered frantically. "'Lily'? That is literally the most generic, overused name for a main character in the history of yuri! You have to be more creative than that!"
 
-My eyes widened at the realization.
+Shit. My eyes widened at the realization.
 
-She was right. My god, she was right. That was a rookie mistake. I opened my mouth to backtrack, but it was too late.
+She was right. My god, she was right. What a rookie mistake. I opened my mouth to backtrack, but it was too late...
 
-"Oh, I love Lily!"
+"Oh, I love Lily!" We both turned. The girl was beaming, her smile so bright it made my headache spike. “I like flowers, and I especially love the deep red of spider lilies! They’re my favorite.”
 
-We both turned. Valerie was beaming at us, her smile bright full of innocense. "I like flowers, and I especially love the deep red color of Spider Lilies! They're my favorite."
+A shiver ran down my spine. For a split second I remembered that weird red flash I thought I saw in her eyes last night. With her talking about spider lilies now, the name suddenly felt… disturbingly appropriate.
 
-A shiver went down my spine. The red flash I’d seen in her eyes yesterday. The name suddenly felt... disturbingly appropriate. Before I could process that thought, she delivered the final blow.
+Before I could say anything, she delivered the final blow.
 
-"No one's ever given me a nickname before," she said quietly. "I like it."
+“No one’s ever given me a nickname before,” she said softly. “I like it.”
 
-And just like that, my chance to protest was vaporized. Looks like she's Lily now.
+And just like that, my chance to protest went up in smoke. Great. Guess she’s Lily now.
 
-"Lily it is, then!" Risa clapped her hands. "Now you match with our Ringo-sensei!" She pointed at me dramatically.
+“Lily it is, then!” Risa clapped her hands. “Now you match with our Ringo-sensei!” She pointed at me like she was announcing the winner of a game show.
 
-Lily looked at Risa, then at me. "Ringo?"
+“Ringo?” Lily tilted her head.
 
-"Yup!" Risa said proudly. "Our little apple teacher."
+“Yup!” Risa grinned. “It comes from Karin Connelly. Rin-co. Ringo. I gave her that nickname back in high school.”
 
-Lily’s expression was one utter confusion. She clearly didn't get neither the 'apple' or the 'teacher' part.
+I sighed. “Yeah. Giving people dumb nicknames is kind of her thing.”
 
-"Don't think too much about it," I mumbled. "It's just my pen name."
+Lily’s eyes widened slightly. “So you’ve known each other since high school?”
 
-"She's a legend!" Risa started to oversell it. "A true master of the craft, a—"
+“Yup,” Risa said, way too pleased with herself. “Our little apple author.”
 
-"I still don't get the Ringo part," Lily said, cutting through Risa's hype and speaking directly to me. "But... how about Rin? Is it okay if I call you that?"
+Lily blinked, clearly lost. She definitely didn’t get it.
 
-Rin. It didn't sound so bad, actually. "Suit yourself," I grunted, looking away, almost on reflex.
+“Don’t think too hard about it,” I mumbled, rubbing the back of my neck. “It’s just my pen name.”
 
-"And I'm Risa!" Risa chirped, inserting herself back into the conversation.
+“She’s a legend!” Risa started overselling me immediately. “A true master of the craft, a—”
 
-I saw my chance for a tiny sliver of revenge. "Her real name is Clarissa," I said, looking at Lily. "But she hates it."
+“I still don’t get the Ringo part,” Lily cut in, ignoring Risa’s hype and looking straight at me. “But… how about Rin? Is it okay if I call you that?”
+
+Rin. Huh. Didn’t sound half bad, actually. “Whatever,” I grunted, looking away before my face could betray me.
+
+“And I’m Risa!” Risa chirped, shoving herself back into the spotlight.
+
+Finally. My chance for a tiny sliver of petty revenge. “Her real name is Clarissa,” I said flashing Lily a smile. “But she hates it.”
+
+
