@@ -54,7 +54,7 @@ We both whipped around to face the girl, who was watching us with a friendly smi
 
 "I'm not sure what she means," she said, with all the cluelessness of a harem anime protagonist. "But my name is Valerie Linden. It's a pleasure to meet you."
 
-Having apparently decided she was the goddamn master of ceremonies, Risa took charge.
+Having apparently decided she was the damned master of ceremonies, Risa took charge.
 
 "Okay, Valerie Linden," Risa declared, tapping a finger to her chin. "'Valerie' is way too normal for this dorm. We need something better." She started muttering to herself, her eyes narrowed in concentration. "Vale**rie** **Lin**den... rie lin... ri-ri... Got it! From this day forward, you shall be known as **Riri-hime**! It's perfect!"
 
@@ -112,4 +112,54 @@ Rin. Huh. Didn’t sound half bad, actually. “Whatever,” I grunted, looking 
 
 Finally. My chance for a tiny sliver of petty revenge. “Her real name is Clarissa,” I said flashing Lily a smile. “But she hates it.”
 
+“It's nice meeting you, Risa.” Lily said.
 
+She completely ignored my perfect setup. Absolute betrayal. 
+
+Risa shot me a look that promised retribution, then glanced between me and Lily, her eyes glinting with mischief.
+
+“My, my. Rin and Lily,” she purred, drawing out the names. “Already on a first-name basis, are we?” She punctuated it with a exaggerated wink that made my skin crawl.
+
+I let out a weary sigh. “Look, I’m in no mood for your games,” I grumbled. “My body hurts all over after last night—”
+
+My mouth decided to run without any input from my brain. A cold spike of panic shot through me.
+
+*Oh no.*
+
+Risa’s eyes went wide. She clasped her hands to her chest, her expression a perfect imitation of a scandalized mother. 
+
+“Oh my! I’m so proud of you, Sensei!” she gasped, dabbing at imaginary tears. “They grow up so fast…”
+
+I wanted to just curl up and cease to exist.
+
+And then Lily, bless her clueless heart, leaned forward, her face full of utterly misplaced concern.
+
+“I’m so sorry, Rin,” she said softly. “I wouldn’t have kept going if I knew you were that tired! I feel terrible.”
+
+My stomach dropped straight through the floor.
+
+That was it. Risa broke. A loud, barking laugh exploded out of her, so violent she had to clutch her stomach.
+
+I pressed my fingers into my temples, trying to physically push the conversation out of my skull. “My head already hurts,” I groaned. “Please don’t make it worse.”
+
+“Oh, a headache?” Lily’s eyes lit up. “I know something that always helps.”
+
+My blood ran cold. Slowly, very slowly, I turned my head toward Risa.
+
+She was gone. Her face was red, tears streaming down her cheeks, and she was laughing so hard she couldn’t even breathe. Just wheezing.
+
+And then Lily delivered the final blow, with the unblemished sincerity of a saint.
+
+“Come to my room tonight,” she offered brightly. “I’ll give you a good shoulder massage. You’ll forget all about your headache.”
+
+“Just… stop…” I mumbled into my hands.
+
+I could feel myself sink lower and lower, trying to make myself smaller, smaller, until the last pathetic scrap of my ego finally gave up and collapsed into a freaking singularity. And of course, because the universe hates me, that singularity immediately tore a hole in reality and turned into a black hole of pure shame.
+
+Every nerve in my body screamed as I felt myself sinking. My fingers twitched uselessly as I tried to claw my way back from the gravity of my own mortification, but it was hopeless.
+
+Risa’s hysterical laughter was the only answer. She was gone, wheezing and pounding the floor like she’d just witnessed the funniest thing in human history.
+
+It took her a whole damn minute to recover enough to crawl over to the kotatsu just to keep herself upright, gasping like she’d run a goddamn marathon.
+
+“Okay, that’s it,” she finally managed between ragged breaths, her voice hoarse from laughing. “I already love this girl. Karin, can we keep her? Please?”
