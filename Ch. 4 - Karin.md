@@ -2,7 +2,7 @@ The grin on Risa's face was one of pure evil. Not mischievous, evil. It was the 
 
 “Say the line,” she commanded, her voice dripping with a sadistic glee.
 
-I knew the line. Of course, I knew the damned line. It was the most ancient, most overused, most humiliating [cliché](). At this point, getting hit by a truck would be a significant improvement to my situation.
+I knew the line. Of course, I knew the damned line. It was the most ancient, most overused, most humiliating cliché. At this point, getting hit by a truck would be a significant improvement to my situation.
 
 I buried my face in my hands. My entire being recoiled, but the words were demanded by the cruel gods of comedy. Using up the last ounce remaining of my dignity, I muttered the cursed phrase into my palms.
 
