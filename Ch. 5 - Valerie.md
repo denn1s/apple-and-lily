@@ -10,7 +10,7 @@ Rin was at her desk, the steady clicking of her keyboard filling the room with i
 
 But today there was something different. Risa was here, cross-legged at the low table, surrounded by what looked like a small explosion of plastic pieces. 
 
-"Princess! Perfect timing," Risa chirped, holding up what appeared to be a plastic antenna between her fingertips. Her eyes sparkled with excitement. "I'm about to attach the V-fin!"
+“Princess! Perfect timing,” Risa chirped, holding up what appeared to be a plastic antenna between her fingertips. Her eyes sparkled with excitement. “I'm about to attach the V-fin!”
 
 The enthusiasm in her voice was infectious, and I felt my lips curve into the first genuine smile I'd worn all day. I settled into my usual spot on the left cushion, the soft fabric welcoming me like an old friend. Risa had claimed the right side, behind the desk, while the top cushion remained empty, waiting for Rin to eventually abandon her glowing screen and join our little circle. If she ever decided to.
 
@@ -19,9 +19,9 @@ My eyes drifted to the project spread across the table. It was one of the robot 
 
 The box beside the model bore a cryptic name: GX-03 Mk.2 MG. I traced the letters with my finger, curious.
 
-"What does this mean?" I asked.
+“What does this mean?” I asked.
 
-Risa's face lit up instantly. "MG? It means Master Grade! It's a one-to-one-hundred scale, which gives you amazing inner frame detail, but it's not as complex as a Perfect Grade, which has full mechanical articulation and—"
+Risa's face lit up instantly. “MG? It means Master Grade! It's a one-to-one-hundred scale, which gives you amazing inner frame detail, but it's not as complex as a Perfect Grade, which has full mechanical articulation and—”
 
 Her voice was bright and enthusiastic, but I found myself more absorbed by the pieces spread across the table. There had to be hundreds of them, all still connected to their neat plastic frames. Each part was molded with so much care that they could be tiny works of art in their own right. 
 
@@ -33,11 +33,11 @@ The process seemed simple, almost mechanical, yet I couldn’t look away. There 
 
 When she was done, she asked, “Want to help build a piece?”
 
-Before I could answer, something else caught my eye. I reached out and picked up what looked like one of the robot’s arms. The colors were striking: bright white, deep blue, a vivid red. Nothing like the dull grey machines I had always imagined when I thought of robots. But...
+Before I could answer, something else caught my eye. I reached out and picked up what looked like one of the robot’s arms. The colors were striking: bright white, deep blue, a vivid red. Nothing like the dull grey machines I had always imagined when I thought of robots. But…
 
 “It looks a little like plastic,” I said, turning it over in my hands. I glanced toward the desk. “Aren’t these supposed to be made of metal?”
 
-Rin answered without looking away from her screen. "The actual suits, you mean? A lunar alloy, technically. But yeah."
+Rin answered without looking away from her screen. “The actual suits, you mean? A lunar alloy, technically. But yeah.”
 
 So it was painted metal.
 
@@ -45,11 +45,11 @@ Before I could stop myself, my mind was already working. To make this white plas
 
 I glanced at Risa, trying to hide the flicker of excitement that had slipped through. “Do people paint these?”
 
-“The pros do!” she said eagerly. “But you have to be super skilled. We tried once and it was a disaster.” Her eyes lit up, a sudden spark of inspiration. “Wait a second… Princess. Do you know how to paint?”
+“The pros do!” she said eagerly. “But you have to be super skilled. We tried once, and it was a disaster.” Her eyes lit up, a sudden spark of inspiration. “Wait a second… Princess. Do you know how to paint?”
 
 Years of lessons. Endless drills. The training I had tried so hard to leave behind.
 
-“…A little,” I admitted.
+“… A little,” I admitted.
 
 Risa’s eyes shone. She reached across the table and grabbed both of my hands. “Please paint it for us! We always wanted to add weathering and details!”
 
@@ -63,15 +63,15 @@ Risa blinked, then glanced up at her. Whatever she saw in Rin’s eyes made her 
 
 Rin turned and walked toward the small kitchen space in the corner, a faint frown tugging at her face.
 
-“Sorry, sorry! Didn’t mean to overstep. But you gotta admit, it would be so cool if we could add some battle damage…”
+“Sorry, sorry! Didn’t mean to overstep. But you have to admit, it would be so cool if we could add some battle damage…”
 
-From the kitchen, Rin’s voice came thoughtful. “It would let us make more lore-accurate scenes, that’s for sure.”
+“It would let us make more lore-accurate scenes, that's for sure.” Rin answered from the kitchen. 
 
 “Like the battle at the southern islands!” Risa added, nodding enthusiastically.
 
-Their voices carried a certain spark. I wanted to refuse... But I couldn’t. Not when they looked at me like that. Not when their excitement was so genuine. These girls… they were quickly becoming my friends. And I didn’t want to disappoint them.
+Their voices carried a certain spark. I wanted to refuse… But I couldn’t. Not when they looked at me like that. Not when their excitement was so genuine. These girls… they were quickly becoming my friends. And I didn’t want to disappoint them.
 
-It’s not a canvas, I told myself, my heart racing. It’s nothing like that. Just a toy. Just adding bit of color on plastic. It’s more like applying makeup than painting.
+It’s not a canvas, I told myself, my heart racing. It’s nothing like that. Just a toy. Just adding a bit of color on plastic. It’s more like applying makeup than painting.
 
 I swallowed, trying to steady the rush in my chest. I’m not an artist anymore. I left that behind. But this… this might be different. This might be okay.
 
@@ -83,7 +83,7 @@ A slow breath escaped me, and I gave them a small nod.
 
 I left the warmth and happy chaos of her room and walked the few steps next door to my own. I pushed the door open, and the difference struck me at once.
 
-The walls were a muted beige and the floor was a blinding white that made this room feel larger than hers, though in truth they were about the same size. To the right, against the wall I shared with her, sat my bed. It was neatly made, as always, as if nobody had ever slept in it.
+The walls were a muted beige, and the floor was a blinding white that made this room feel larger than hers, though in truth they were about the same size. To the right, against the wall I shared with her, sat my bed. It was neatly made, as always, as if nobody had ever slept in it.
 
 To the left stood my desk, bare except for a closed laptop resting in the center. Beside the bed, a single shelf stood against the wall. It was mostly empty, holding only the heavy textbooks from my classes, their spines lined up in a row like silent judges. They reminded me that I really should be studying right now.
 
@@ -103,13 +103,13 @@ I ran my fingers over the handles, pausing on a tiny 2/0 round brush, its bristl
 
 The next box was heavier. Palettes, stacked one over the other, their surfaces stained with the remains of colors long since dried. My hand hovered over one with a hairline crack running through the wood. I remembered the day I'd thrown it, years ago, when I was still a child. The sound it made when it hit the floor. The silence that followed. The disapproving stares. I closed the lid without taking anything.
 
-The third box was filled with paints. Tubes of every shade, their labels smudged with fingerprints from another life. My gaze caught on cobalt blue, and a sharp sting of shame rose in my throat. I could still hear my tutor's voice, dripping with disdain. "An unrealistic color, Miss Valerie. We are capturing life as it is, not as you wish it to be."
+The third box was filled with paints. Tubes of every shade, their labels smudged with fingerprints from another life. My gaze caught on cobalt blue, and a sharp sting of shame rose in my throat. I could still hear my tutor's voice, dripping with disdain. “An unrealistic color, Miss Valerie. We are capturing life as it is, not as you wish it to be.”
 
-I forced the memory down and began pulling out what I needed. My old canvas paints wouldn't cling to plastic. They'd peel and flake no matter how carefully I applied them. What I needed was a base.
+I forced the memory down and began pulling out what I needed. My old canvas paints wouldn't cling to plastic. They'd peel and flake no matter how carefully I applied them. I had to start with a base.
 
-My hand found a bottle of primer, the kind that would bite into the surface and hold the color in place. Next came a silver enamel, perfect for scratches and edges. Then a few shades of grey, some muted whites, a deep red, a dark blue—colors that would match the base plastic of the model.
+My hand found a bottle of primer, the kind that would bite into the surface and hold the color in place. Next came a silver enamel, perfect for scratches and edges. Then a few shades of grey, some muted whites, a deep red, a dark blue, and several other colors that would match the base plastic of the model.
 
-I grabbed one of the leather satchels I used to carry to lessons, pulled it open and dropped the supplies inside. The brushes, the paints, the primer. They clattered against each other in a messy heap, a small, defiant act against the rigid order Mother had demanded.
+I grabbed one of the leather satchels I used to carry to lessons, pulled it open, and dropped the supplies inside. The brushes, the paints, the primer. They clattered against each other in a messy heap, a small, defiant act against the rigid order Mother had demanded.
 
 I didn't linger. The air in here felt heavier with every breath, thick with ghosts I had no wish to face. Slinging the bag over my shoulder, I shut the closet door and walked quickly out of the room.
 
@@ -123,7 +123,7 @@ When she noticed me, Risa looked up with a wide grin. In the center of the table
 
 “Princess! You’re back!”
 
-Risa carelessly lifted the model and held it out to me with both hands, her gaze lowered as if presenting an offering. I set my satchel down and accepted it. Carefully, I turned it in my hands and tested a shoulder joint, then an elbow, rotating the arm through its full range of motion. The movement was almost lifelike, and far more flexible than I had expected. It was also surprisingly sturdy.
+Risa carelessly lifted the model and held it out to me with both hands, her gaze lowered as if presenting an offering. I set my satchel down and accepted it. Carefully, I turned it in my hands and tested a shoulder joint, then an elbow, rotating the arm through its full range of motion. The movement was almost lifelike and far more flexible than I had expected. It was also surprisingly sturdy.
 
 “The articulation is incredible,” I murmured, unable to hide the wonder in my voice. “It moves so much.”
 
@@ -133,21 +133,21 @@ This wasn’t like the stiff action toys I’d seen. Every joint felt engineered
 
 Wile Risa was still lost in her explanation, I turned my attention to the corner of the room, where Rin sat at her desk.
 
-"Rin," I said, . "For the scene you want to make, in what condition is this... robot?"
+“Rin,” I said. “For the scene you want to make, in what condition is this… robot?”
 
-She turned in her chair, pushing her glasses up her nose. "Condition? What do you mean?"
+She turned in her chair, pushing her glasses up her nose. “Condition? What do you mean?”
 
-"Is it supposed to be old? Has it been in a battle, taken any damage? Is there rust, or dirt?"
+“Is it supposed to be old? Has it been in a battle, taken any damage? Is there rust or dirt?”
 
-A flicker of understanding crossed her face. She glanced at a diorama on her shelf before answering. "Oh. Nah, for that scene, this one's brand new. Fresh off the assembly line."
+A flicker of understanding crossed her face. She glanced at a diorama on her shelf before answering. “Oh. Nah, for that scene, this one's brand new. Fresh off the assembly line.”
 
-"I see..." I said. That's a good place to start. A blank canvas.
+“I see…” I said. That's a good place to start. A blank canvas.
 
-"Go nuts," Rin added, turning back to her screen. "And don't worry if you screw it up. We mess them up all the time."
+“Go nuts,” Rin added, turning back to her screen. “And don't worry if you screw it up. We mess them up all the time.”
 
 I gave her a small nod and turned back to the table. Unlatching my leather satchel, I tipped it over and let everything spill onto the floor in a messy heap. Brushes, paints, bottles—all of it scattered without any order. I glanced around, but neither of them batted an eye. Risa was still talking to herself, and Rin hadn’t even looked back from her screen.
 
-This was strangely liberating. Nobody here cared. Everyone was so absorbed in the things they loved, that it didn’t matter how I worked, or even what I chose to do.
+This was strangely liberating. Nobody here cared. Everyone was so absorbed in the things they loved that it didn’t matter how I worked or even what I chose to do.
 
 Reaching down, I picked up a stray piece of cardboard from the model’s box and set it on the table as a makeshift palette, then fetched a plastic cup of water from the kitchen sink.
 
@@ -159,13 +159,12 @@ My hands moved without hesitation, mixing paint on the cardboard. White, but not
 
 I loaded the brush and pressed it to the shoulder armor. With one smooth stroke, the plastic sheen vanished, replaced by a soft matte finish that gave the piece weight. Substance. 
 
-"Whoa… Princess," Risa said with wide eyes. "You’re incredible! It already looks so much better!"
+“Whoa… Princess,” Risa said with wide eyes. “You’re incredible! It already looks so much better!”
 
 _It’s just a base coat,_ I thought, as my old lessons echoed in my mind. There’s nothing skillful about this part. It’s but the boring work you do before the real painting begins.
 
-"Thank you." I said, offering her a small, tight smile.
+“Thank you.” I said, offering her a small, tight smile.
 
-My teacher would be rapping my knuckles right about now. _The surface is improperly prepared, Miss Valerie. The color is not accurate. Your strokes are rough. This is not the right brush, nor the right paint..._
+My teacher would be rapping my knuckles right about now. _The surface is improperly prepared, Miss Valerie. The color is not accurate. Your strokes are rough. This is not the right brush, nor the right paint…_
 
-_... you'll never be like her at this rate._
-
+_… you'll never be like her at this rate._
