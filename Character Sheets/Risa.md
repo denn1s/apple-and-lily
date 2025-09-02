@@ -2,13 +2,13 @@
 
 ## Core Information
 * **Role in Story:** The Shipper, The Producer, and The Audience Surrogate. She is the social engine of the dorm, Karin's best friend, and the first person to actively try to get Valerie and Karin together.
-* **Age:** 19 (University Freshman)
-* **Studies:** Computer Science at an unnamed US university. Unlike her friends, she is genuinely passionate about programming and is highly skilled at it.
+* **Age:** 21 (Third Year University)
+* **Studies:** Computer Science at an unnamed university. Unlike her friends, she is genuinely passionate about programming and is highly skilled at it.
 
 ## Personality & Expression
 * **Personality:** A friendly, energetic "gremlin." She is loud, mischievous, and perpetually scheming—usually for the good of her friends. She's extremely passionate about her hobbies (gaming, her VN project) and her friends' happiness. She is direct, loyal, and has very little patience for beating around the bush.
 * **Speech Patterns:**
-    * **General:** Speaks quickly, excitedly, and is full of internet and gaming slang ("pog," "oof," "let's gooo," "the meta," etc.). She is blunt and speaks her mind, but her tone is almost always teasing and affectionate.
+    * **General:** Speaks quickly, excitedly, and is full of internet and gaming slang. She is blunt and speaks her mind, but her tone is almost always teasing and affectionate.
     * **Quirk:** As the self-appointed Namer of the dorm, she loves bestowing nicknames and titles on people. This comes from a personal dislike of her own "stuffy" name, Clarissa. She exclusively goes by Risa.
     * **Example Quotes:**
         > (Bursting into Karin's room) "Ringo-sensei! You are not gonna believe the patch notes for *Cyber-Struggle V*. They totally nerfed the Chrono-Lancer!"
