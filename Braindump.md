@@ -65,3 +65,11 @@ Agorafobia
 - **In-Person Private Testing**: As part of her therapy, a long-term goal might be to take a test in a private, quiet room at the accessibility office. Her therapist might work with her for weeks on this "exposure therapy," a huge milestone that would feel like climbing a mountain.
 - **Cars**: A private car would be far more manageable. It's a controlled, private environment. She can control the music, the temperature, and who is inside. There's a clear and immediate way to escape—they can just drive away. A short, planned trip in Risa's car might be a realistic goal for her therapy.
 - **Public Transport**: Public transport like a bus or subway would be a **nightmare scenario**. It represents a total loss of control: it's crowded, loud, and filled with strangers. The doors close, and she can't get off whenever she wants. The risk of having a panic attack there, where escape is impossible and she'd feel trapped and embarrassed, makes it something she would avoid at all costs.
+
+
+
+Idea:
+
+Valerie heads toward the kotatsu while Karin makes her way to the kitchen, and they cross paths in the narrow space between the kitchenette partition and the wall. The passage is so tight that only one person can comfortably pass at a time.
+
+Instead of waiting, Valerie presses herself against the wall to make room. Karin hesitates for a moment but, trying to appear nonchalant, squeezes through the gap as quickly as she can. Once she’s past, Valerie continues on to the kotatsu.
