@@ -87,53 +87,51 @@ Rin held her pose. Smiling, I slipped into my usual spot at the low table, settl
 
 Only then did she react, the spell finally breaking. The noodles slipped from her chopsticks with a soft slurp as they fell back into the cup. A deep blush crept up her neck, and her eyes, now clear of the steam, met mine for just a moment before darting away.
 
-“Sure,” she mumbled at last. Pushing herself up from the table, she marched toward the small kitchen counter with mechanical steps. Her movements reminded me of the plastic model. 
+“Sure,” she mumbled at last. Pushing herself up from the table, she marched toward the small kitchen counter with mechanical steps. Her movements reminded me of the plastic model.
 
-My gaze drifted to the table. The robot still stood there, surrounded by the remnants of my impromptu painting station from yesterday: the cardboard palette, the single brush I had brought, and my old leather satchel, all perfectly untouched.
+My gaze drifted to the table. The robot still stood there, surrounded by the remnants of my impromptu painting station from yesterday: the cardboard palette, the single brush I had brought, and my old leather satchel, they where all just as I'd let them.
 
-And yet, the water I had spilled was gone. She had cleaned the mess, but not a single one of my things. I had spent the night consumed by the worry that I had made a fool of myself, that I had risked this fragile new friendship by running away.
-
-But she wasn’t angry. She had left everything as it was, as if waiting for me to return.
+And yet, the water I had spilled was gone. She had cleaned the mess, but didn't touch any of my things. I had spent the night consumed by the worry that I had made a fool of myself, that I had risked this fragile new friendship by running away. But she wasn’t angry. She had left everything as it was, as if waiting for me to return.
 
 A wave of warmth washed over me, so potent it dissolved the very last of my anxiety. A genuine smile touched my lips.
 
-I leaned forward to clean up my things. One by one, the little tubes of paint went back into my satchel, not in their proper places but simply dropped inside, clinking softly as they landed together. The brush followed, also thrown in without much thought.  
+I leaned forward to clean up my things. One by one, the little tubes of paint went back into my satchel, not in their proper places but simply dropped inside, clinking softly as they landed together. The brush followed, also thrown in without much thought.
 
-As for the cardboard palette... I folded it in half and slid it into the bag as well. There were plenty of fine wooden palettes waiting in my closet, but for some reason, I wanted to keep this one
+As for the cardboard palette… I folded it in half and slid it into the bag as well. There were plenty of fine wooden palettes waiting in my closet, but for some reason, I wanted to keep this one.
 
-When I finished tidying up, only the model remained on the table. Its new coat of paint was still fresh, but the surface already catched the light in a way that made it look better than before.
+When I finished tidying up, only the model remained on the table. Its new coat of paint was still fresh, but the surface already caught the light, the soft matte finish giving it a sense of weight the bare plastic never had.
 
 The kettle began to hum then, a soft sound breaking the peaceful silence.
 
 “Where should I put this so it won’t be in the way?” I asked, glancing toward Rin in the kitchen.
 
-She was peeling the paper lid off a new cup of noodles, her hands still a little unsteady. 
+She was peeling the paper lid off a new cup of noodles, her hands still a little unsteady.
 
-“Are you done with it? Anywhere’s fine,” she said without looking at me. “It’s actually Risa’s.”
+“Are you done with it? Anywhere is fine,” she said without looking at me. “It’s actually Risa’s.”
 
 “Risa’s?”
 
 “Most of them are. Her room ran out of space a while ago, so all her junk ends up in here nowadays.”
 
-The kettle clicked off, and she poured the steaming water into the fresh cup of noodles she’d set out for me, trying not to spill. Her own half-finished cup still sat on the table, chopsticks resting across the rim.
+The kettle clicked off, and she poured the steaming water into the fresh cup of noodles she’d set out for me. Her own half-finished cup still sat on the table, chopsticks resting across the rim.
 
 My gaze drifted to the shelves, to the models locked in their frozen battles.
 
 “And the fight scenes?” I asked. “Are those Risa’s work too?”
 
-She set the lid on my noodles, her fingers drumming against the counter before she finally spoke.
+Her fingers drummed against the counter as she was seemingly deciding on her answer. 
 
-“…Those are mine.” She seemed almost reluctant. After a beat, she added quickly, “Risa’s the one who buys the kits. Builds most of them too, until she gets bored and just leaves them here. I just… put them together after.”
+“… Those are mine.” She said, almost reluctant. After a beat, she added quickly, “Risa’s the one who buys the kits. Builds most of them too, until she gets bored and just leaves them here. I just… put them together after.”
 
-So the scenes were hers. Risa had said she was a writer, so it made sense, then. She wasn’t collecting them; she was telling their stories.
+So the scenes were hers. Of course. Risa had said Rin was a writer. It only made sense that she would be the one telling the stories.
 
 I lifted the model into my hands, holding it gently as I began to adjust its limbs. First, I raised the right arm, angling it forward to hold the broad shield, just as she had shown me. Then I bent the right knee, pressing the foot flat against the table to get the right angle, and finally, I eased the left leg back, stretching it out for balance.
 
 Piece by piece, I set it into the stance I remembered so clearly. The _I’m not backing down_ pose.
 
-Rising to my feet, I scanned the crowded shelves until I found a small patch of empty space. I placed the model there, facing outward into the room.
+Rising to my feet, I scanned the crowded shelves until I found a small space. I placed the model there, facing outward into the room.
 
-When I turned back, she had already returned to her seat. A pair of disposable chopsticks rested neatly across the paper lid in the steaming cup she had prepared for me. She gave the cup a small push, sliding it across the table to my usual spot.
+When I turned back, she had already returned to her seat. A pair of disposable chopsticks rested neatly across the paper lid of the steaming cup she had prepared for me. She gave the cup a small push, sliding it across the table to my usual spot.
 
 Then, without a word, she picked up the chopsticks from her own half-finished noodles and resumed eating.
 
