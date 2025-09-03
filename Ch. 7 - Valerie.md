@@ -135,5 +135,61 @@ When I turned back, she had already returned to her seat. A pair of disposable c
 
 Then, without a word, she picked up the chopsticks from her own half-finished noodles and resumed eating.
 
-I lowered myself onto the cushion. For the first time since yesterday, we were both sitting together at the table. Somehow, everything finally felt as though it had settled back into place.
+I lowered myself onto the cushion. For the first time since yesterday, we were both sitting together at the table, and somehow everything finally felt like it had settled back into place.
 
+
+“Give them, like, two more minutes,” Rin said, pointing at my cup.
+
+“Thank you,” I said, offering her a polite smile. We had cake for breakfast the other day, and now noodles. Mother would have been horrified, but I could only see it as another perfect, messy, wonderful breakfast.
+
+I picked up the chopsticks she had left for me. They came in a paper wrapper that I tore open at the top, sliding the sticks out. I was expecting two separate sticks, but they seemed to be fused together at the top, as if carved from a single piece of wood.
+
+How strange. I gripped one in each hand and pulled, but they didn't budge. I tried again, twisting them this time, but they remained stubbornly connected.
+
+A loud sigh came from across the table. Rin held out her hand, palm up. Heat rose to my cheeks as I passed her the fused chopsticks. With a single, sharp _crack_, she split them perfectly in half.
+
+“How can you be so ridiculously graceful with a brush and so useless with things like these?” she said as she handed them back to me.
+
+“Thank you, Rin,” I managed, not quite meeting her eyes.
+
+The two minutes had to be up by now, so I peeled back the paper lid and was greeted by a cloud of steam that carried a salty aroma of broth and spices. Inside, the noodles had softened into a tangled nest and were now floating in the warm liquid.
+
+“They're just cheap dehydrated noodles and seasoning,” Rin began, gesturing with her chopsticks toward my cup. “The hot water rehydrates them. You just have to—”
+
+“I _do_ know what cup noodles are, Rin,” I interrupted, giving her an indignant look. “I'm not _that_ sheltered.”
+
+She raised an eyebrow. “Says the girl who couldn't open a boba tea.”
+
+I just gave her a pout. That was a low blow. I decided then and there that I would master these chopsticks if it was the last thing I did.
+
+With an air of newfound rebellious confidence, I picked up the separated chopsticks. I held them just as I'd seen her do. I dipped them into the cup, aimed for a bundle of noodles, and pinched.
+
+They slid right through.
+
+I tried again, this time with fierce concentration. The sticks crossed awkwardly, sliding against each other as I fumbled for control. Finally, I managed to trap a single, lonely noodle between the tips. I lifted it triumphantly toward my mouth… But it wriggled free and plopped back into the cup with a tiny splash.
+
+I stared at my cup in defeat for a beat.
+
+Until a short, sharp _pfft_ broke the silence.
+
+I looked up to find Rin with her hand clamped over her mouth, her shoulders shaking with barely contained laughter. When our eyes met, she lost the battle entirely, doubling over slightly. The sound that escaped was part snort, part giggle, and all mocking.
+
+“Sorry,” she managed between breaths, though she didn’t look sorry at all. “It’s just… you looked so confident.”
+
+Oh? A slow smile spread across my face. So that’s how we’re playing now.
+
+The game was on. I set the chopsticks down with a sigh of mock defeat, though my eyes were already sparkling with mischief.
+
+“You know,” I began lightly, “in that book I was reading the other day, First Blossom?”
+
+She flinched. Her eyes widened like a mouse realizing the cheese wasn’t free.
+
+“There was this scene,” I went on, savoring the look of dawning horror on her face, “where the girls were eating with chopsticks… and one of them shared her food with the other.”
+
+I tilted forward across the table, holding my empty chopsticks her way, as if testing the idea.
+
+“I don’t think I’ll ever understand what’s supposed to be so charming about it if I can’t even use them.”
+
+Propping my chin in my hands, I let my gaze lock onto hers. The surprise on her face bloomed into yet another delightful shade of red.
+
+“I think you’ll need to give me a lesson, Sensei.”
