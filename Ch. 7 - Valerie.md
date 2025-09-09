@@ -168,28 +168,26 @@ They slid right through.
 
 I tried again, this time with fierce concentration. The sticks crossed awkwardly, sliding against each other as I fumbled for control. Finally, I managed to trap a single, lonely noodle between the tips. I lifted it triumphantly toward my mouth… But it wriggled free and plopped back into the cup with a tiny splash.
 
-I stared at my cup in defeat for a beat.
+I stared at my cup in defeat.
 
 Until a short, sharp _pfft_ broke the silence.
 
 I looked up to find Rin with her hand clamped over her mouth, her shoulders shaking with barely contained laughter. When our eyes met, she lost the battle entirely, doubling over slightly. The sound that escaped was part snort, part giggle, and all mocking.
 
-“Sorry,” she managed between breaths, though she didn’t look sorry at all. “It’s just… you looked so confident.”
+"Sorry," she managed between breaths, though she didn't look sorry at all. "It's just… you looked so confident."
 
-Oh? A slow smile spread across my face. So that’s how we’re playing now.
+I gave her my most indignant pout, crossing my arms for good measure. She was being absolutely terrible. But then a thought occurred to me, and despite my best efforts to stay offended, my expression brightened considerably.
 
-The game was on. I set the chopsticks down with a sigh of mock defeat, though my eyes were already sparkling with mischief.
+"You know," I began, "in that book I was reading the other day, *First Blossom*?"
 
-“You know,” I began lightly, “in that book I was reading the other day, First Blossom?”
+I knew exactly what to ask so she would help me.
 
-She flinched. Her eyes widened like a mouse realizing the cheese wasn’t free.
+"There was this scene where the girls were eating with chopsticks," I continued, my face lighting up with innocent curiosity, "and one of them shared her food with the other."
 
-“There was this scene,” I went on, savoring the look of dawning horror on her face, “where the girls were eating with chopsticks… and one of them shared her food with the other.”
+I held up my chopsticks, pointing them in her direction as I spoke.
 
-I tilted forward across the table, holding my empty chopsticks her way, as if testing the idea.
+"I don't think I'll ever figure out what's supposed to be so charming about these things if I can't even hold them right."
 
-“I don’t think I’ll ever understand what’s supposed to be so charming about it if I can’t even use them.”
+I looked back at her hopefully. She was too kind to say no if I asked her like this.
 
-Propping my chin in my hands, I let my gaze lock onto hers. The surprise on her face bloomed into yet another delightful shade of red.
-
-“I think you’ll need to give me a lesson, Sensei.”
+"I think you'll need to give me a lesson, Sensei."
