@@ -123,3 +123,70 @@ A shiver ran down my spine. I wrenched the bathroom door open and escaped, slamm
 
 ---
 
+I stayed in the bathroom for a few minutes, splashing cold water on my face until the heat in my cheeks finally subsided. When I finally worked up the nerve to emerge, the bizarreness of the scene that greeted me hit me.  
+
+There, sitting at my kotatsu, was the goddess-slash-demon from just a moment ago. But now, she was just… a girl. A girl clumsily chasing a stray piece of pork around her cup of instant noodles with chopsticks she still hadn’t mastered. Somehow the terrifying creature from five minutes ago was losing a fight to my sad excuse for breakfast. My life was a joke.  
+
+I glanced at the door leading out into the hallway and sighed. I still owed her an apology for yesterday.  
+
+Quietly, I made my way back to my seat. She finally managed to corner the piece of pork and looked up at me with a huge, triumphant smile. Then, as if it were totally normal, she hit me with the one thing I’d been dreading.  {Let's have change this part to have them finish their food in quiet}
+
+{After they are done, Lily asks if she can grab another book, since she already finished the last one}
+
+{Karin just tells her to help herself and keeps observing has she happily grabs one of the books from the selves}
+
+{When Karin notes which one it is she sighs (make up a yuri title)}
+
+{Karin stands up and grabs the book from her hands, then she swiftly replaces it with another, tamer book (make up another title)}
+
+{Lily pouts a little but opens up the other book}
+ 
+“So, you never told me why I never see you in our lectures.”
+
+I froze, chopsticks halfway to my mouth. I put them down slowly. Here it comes. The judgment. The pity. 
+
+I took a deep breath, bracing myself. But when I looked at her, all I could see was naive curiosity. No smirk, no fake sympathy. Just the same dumb smile I was beginning to get used to.
+
+And for some stupid reason, that made me open my mouth.
+
+"I don't really go," I mumbled. "Lately… it's been getting harder to leave my room. It started in high school, but it's gotten worse..."  
+
+Her eyes never left me. She wasn't even eating anymore. All she did was nod my way to signal me to continue. Which somehow worked, because the words kept tumbling out.
+
+"I don't know how to describe it. Just walking out feels like—" I shook my head. “Scary. Like really freaking scary."
+
+And then the worst part slipped out before I could stop it. “The other night… when you ran off after I—” my throat caught, “after I was a complete jerk to you… that was the first time I froze at my own doorway.”
+
+*My safe space just keeps getting smaller and smaller.*
+
+God, what was I even doing? Who info‑dumps their pathetic backstory to a girl they barely know? A loser, that's who. 
+
+I braced myself, but she just nodded, as if I’d just told her the weather. There was no pity in her eyes. 
+
+After a moment, she spoke. "I see. In that case, how about a deal?"
+
+I looked up, confused. "A deal?"
+
+"You're having trouble going to class," she stated simply. "And I'm having trouble understanding what's going on _in_ class." A small, wry smile touched her lips. 
+
+She leaned forward slightly. "So, I'll go to every lecture and bring you back the notes. And in return… you can help me actually understand them."
+
+I was stunned. I was so sure she was going to try to "fix" me, or tell me to just "get over it" and go outside. But she didn't do that. She just… accepted it. Is she really just that much of an airhead? Or is she actually just… kind? No—that couldn’t be it. Not for me. Definitely not for someone like me.
+
+"You'd be better off asking Risa," I deflected. "She's actually smart. And really good at computers."
+
+"But Risa isn't my teacher," she cut in. "You are."
+
+My mouth snapped shut.
+
+I stared at her, a strange warmth spreading through my chest that I did not know how to process. But maybe it wouldn’t be so bad if she had something other than the Yuri Lessons as an excuse to come here.
+
+"So, deal?" she asked, a small smile playing on her lips. She held out her chopsticks.
+
+After a beat, I lifted my own. With a soft click, our chopsticks touched, sealing the pact.
+
+
+
+Help me rewrite the opening of this scene to add a new cute interaction. 
+
+After leaving the bathroom, she finds Lily looking through the shelves as if she was in her own house. She grabs one model of manga 
