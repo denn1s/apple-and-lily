@@ -129,21 +129,11 @@ There, sitting at my kotatsu, was the goddess-slash-demon from just a moment ago
 
 I glanced at the door leading out into the hallway and sighed. I still owed her an apology for yesterday.  
 
-Quietly, I made my way back to my seat. She finally managed to corner the piece of pork and looked up at me with a huge, triumphant smile. Then, as if it were totally normal, she hit me with the one thing I’d been dreading.  {Let's have change this part to have them finish their food in quiet}
+Quietly, I made my way back to my seat. She finally managed to corner the piece of pork and looked up at me with a huge, triumphant smile. Then, as if it were totally normal, she hit me with the one thing I’d been dreading.
 
-{After they are done, Lily asks if she can grab another book, since she already finished the last one}
+“So, you never told me why I never see you in our lectures.”  
 
-{Karin just tells her to help herself and keeps observing has she happily grabs one of the books from the selves}
-
-{When Karin notes which one it is she sighs (make up a yuri title)}
-
-{Karin stands up and grabs the book from her hands, then she swiftly replaces it with another, tamer book (make up another title)}
-
-{Lily pouts a little but opens up the other book}
- 
-“So, you never told me why I never see you in our lectures.”
-
-I froze, chopsticks halfway to my mouth. I put them down slowly. Here it comes. The judgment. The pity. 
+I froze, chopsticks halfway to my mouth. I put them down slowly. Here it comes. The judgment. The pity.
 
 I took a deep breath, bracing myself. But when I looked at her, all I could see was naive curiosity. No smirk, no fake sympathy. Just the same dumb smile I was beginning to get used to.
 
@@ -185,8 +175,3 @@ I stared at her, a strange warmth spreading through my chest that I did not know
 
 After a beat, I lifted my own. With a soft click, our chopsticks touched, sealing the pact.
 
-
-
-Help me rewrite the opening of this scene to add a new cute interaction. 
-
-After leaving the bathroom, she finds Lily looking through the shelves as if she was in her own house. She grabs one model of manga 
