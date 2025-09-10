@@ -73,3 +73,8 @@ Idea:
 Valerie heads toward the kotatsu while Karin makes her way to the kitchen, and they cross paths in the narrow space between the kitchenette partition and the wall. The passage is so tight that only one person can comfortably pass at a time.
 
 Instead of waiting, Valerie presses herself against the wall to make room. Karin hesitates for a moment but, trying to appear nonchalant, squeezes through the gap as quickly as she can. Once she’s past, Valerie continues on to the kotatsu.
+
+
+
+ideas. Valerie accepts Karin's agoraphobia so easily because she "understands"
+
