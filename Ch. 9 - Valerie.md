@@ -60,43 +60,69 @@ I turned back slightly, offering her a small smile.
 
 "Could you hold the door for us?"
 
-A moment later, I returned with two large grocery bags in my arms. Risa followed right behind, wrestling with a large cardboard box as we made our way past Rin and into the room.
+A moment later, I returned with two bags of what appeared to be paints. Risa followed right behind, carefully carrying a large cardboard box as if it held something fragile. We made our way past Rin and into the room.
 
-Risa dropped the box onto the table and I could hear the sound of loose plastic parts shifting within. I set the bags down beside it, more gently. Out of the corner of my eye, I saw Rin shake her head once. Then a hand came up to rest on her chest for a moment, and she let out a steadying breath before moving past Risa to settle into her usual spot at the head of the table.
+Risa placed the box gently in the center of the table. I set my bags down beside it. Out of the corner of my eye, I saw Rin shake her head once. A hand came up to rest on her chest for a moment, and she let out a steadying breath before moving past Risa to settle into her usual spot at the head of the table.
 
 “So Risa,” she began, her voice even again. “Is this why you haven’t been coming around lately?”
 
-“Mhm,” Risa hummed, nodding. “Had to call in some favors. Princess, any guess what this is?”
+“Mhm,” Risa hummed, nodding. “Had to call in some favors. Princess, any guess what this is?” She gestured between my bags of paint and her mysterious box.
 
-I had noticed that the bags were full of small bottles. “It looks like acrylic paint and primer. Are we working on another model?”
+“It looks like acrylics and primer,” I observed. “Are we working on another model?”
 
-“Something like that!” Risa chirped. “Need anything else? Brushes, maybe?”
+“Something like that!” Risa chirped. “Need anything else from me?”
 
-"My old brushes should be fine," I said, thinking of the oil paints they were designed for. "Though they will be troublesome to clean." Besides those, I would probably need varnish to seal the final coat, and perhaps some thinner if these acrylics were too thick for detail work, but that could wait. "I'll have to see how the paint applies before I know for certain."
+"My old brushes should do fine," I said, thinking of the oil paints they were designed for. "Though they will be troublesome to clean." Besides those, I would probably need varnish to seal the final coat, and perhaps some thinner if these acrylics were too thick for detail work, but that could wait. "I'll have to see how the paint applies first."
 
-"Excellent!" Risa beamed, pointing dramatically at the box. "Because..." She paused for effect. "That is a Garage Kit!"
+"Excellent!" Risa beamed, placing her hands on either side of the box. "Because..." She paused for effect, then lifted the box with a flourish, like a magician revealing their final trick. "This is a Garage Kit!"
 
-I tilted my head. I knew those words, but had no idea what to make of them in this context.
+My breath caught. Standing on the table where the box had been was a figure, assembled from what must have been dozens of smaller pieces. They were all cast in the same pale, white plastic, fitted together so perfectly that the seams were barely visible. The color reminded me of the countless plaster statues I had been forced to sketch in my youth, but this was different. It *felt* different. Those statues were exercises in precision, with every muscle and fold of fabric carved with painstaking accuracy. This sculpture, however, wasn't concerned with anatomy. It prioritized feeling. Every line was sculpted to convey a personality, to tell a story. In that moment, I understood why Rin filled her shelves with these models.
 
-But Rin leaned forward, her eyes bright with a rare spark. “You got an unpainted one?”
+It was the statue of a little girl, posed with a cheerful confidence that made her seem almost alive. Every line of the sculpture was soft and round, from the impossibly full curls of her hair to the puffed shoulders and the wavy hem of her wide skirt. The design created a wonderful sense of playful volume, as if she were a cloud given human form.
+
+In her hand, she held a long staff topped with a flourish shaped like the bristles of a paintbrush. The irony was almost painful; the very instrument of my old life, re imagined here as a source of magic and joy. Her smile was wide and completely unguarded, an expression of impossibly pure delight that my tutors would have dismissed as nonsense.
+
+Rin leaned forward, her eyes bright with a rare spark. “Oh! You got an unpainted one?”
 
 “Yup!” Risa said proudly. “It was not easy to get, let me tell you.”
 
-Rin looked genuinely impressed. “So you want Lily to paint it for us? That would certainly help us get some of the rarer figures.”
+"Should I go get my brushes, then?" I asked, trying to keep my tone even.
 
-“That’s not all!” Risa declared. “We could… *print* them.”
+"I love the enthusiasm, Princess!" Risa laughed. "But there's no hurry. I'm giving this to you. You can take all the time you need with it."
 
-"Didn't we try that already?" Rin countered, her brow furrowing. "Even with the store-bought 3D models, we could never make any adjustments." She glanced at my confused expression and added, "The files always seem to need some kind of tweaking before they'll print properly, but we never figured out how to do it."
+I stared at the figure, then back at Risa. "But... aren't these rare?"
 
-I nodded, though I didn't really understood. 
+"Meh," she said with a wave of her hand. "I give stuff to Ringo-sensei all the time." She grinned, tapping the figure’s base. "Besides, this is a model of the one and only Riri-hime! It's only right that the 'Princess' herself should have it."
 
-"Exactly," Risa jumped in. "If we try to print them as-is, and they'd either collapse or come out looking like melted plastic. We need someone who can actually sculpt."
+My own personal Riri-hime. This was a blank canvas. A three-dimensional canvas, free of any rules or expectations. A flicker of something rose in my chest, but I pushed it down immediately. It was just a toy. A project. Nothing more.
 
-Risa’s smile widened, showing her teeth. She threw an arm around Rin’s shoulders, yanking her into a huddle that was still perfectly audible from where I sat. I calmly took a final sip of my now-cool tea.
+Rin, however, was giving Risa a suspicious look. “But all of those are pre-painted sets, aren’t they?” she pointed out. “You’re scheming something.”
+
+A wicked grin spread across Risa’s face. “Hehe! You catch on quick.”
+
+She leaned forward, her voice dropping to a conspiratorial whisper. “My evil plan is simple! Once Princess here gets a feel for how these kits are put together…” She paused dramatically. “That’s when we move to the next phase!”
+
+“Which is what?” Rin asked, raising a single eyebrow. 
+
+“We *print* them!” Risa declared, her voice returning to its usual cheerful volume.
+
+Print them? Like with a printer? I tried to mimic Rin’s questioning expression, but my eyebrows refused to cooperate. Both of them shot up, or neither moved at all.
+
+"Didn't we try that already?" Rin countered, her eyebrow still raised. "Even with the store-bought 3D models, we could never make any adjustments."
+
+She glanced over at me. I was still struggling, trying to solve a complex puzzle with my face.
+
+She let out a soft sigh. "The files always seem to need some kind of tweaking before they'll print properly," she explained. "But we never figured out how to do it."
+
+I finally gave up and simply used my index finger to push one of my eyebrows up, holding it in place as I tried to look doubtful.
+
+"Exactly," Risa jumped in, pointing at Rin. "If we try to print them as-is, they'd either collapse or come out looking like melted plastic. We need someone who can actually sculpt."
+
+Risa’s smile widened, showing her teeth. She threw an arm around Rin’s shoulders, yanking her into a huddle that was still perfectly audible from where I sat. I let my face relax and calmly took a final sip of my now-cool tea.
 
 “Sure, Sensei, we couldn’t do it before,” Risa whispered conspiratorially. “Because neither of us were… *artistically inclined*.”
 
-She glanced over at me, and I gave a polite little wave.
+She glanced over at me, and I gave her a polite little wave.
 
 "Oh!" Rin's eyes widened as the realization dawned. She pulled away from Risa and sat back, her expression thoughtful. A moment passed. Then, her right hand clenched into a small fist and tapped firmly into the open palm of her left. She had an idea.
 
@@ -112,12 +138,12 @@ Our deal. We had promised to help each other, but the textbooks remained unopene
 
 I nodded, my cheek now less than an inch from hers.
 
-“W-well,” she continued, her eyes darting everywhere but at me. “We… I m-mean, you… you should ask Risa! For help! In e-exchange for… p-painting.”
+“W-well,” she continued, her eyes darting everywhere but at me. “We… I m-mean, you… you should ask Risa! For help! In e-exchange for… m-modeling for her.”
 
-She knew she had brought this on herself. She was trying so desperately to play it cool, but the fine beads of sweat on her brow gave her away. If her shaking voice wasn't enough of a clue. How cute.
+She knew she had brought this on herself, yet she was trying so desperately to play it cool. The fine beads of sweat on her brow gave her away, if her shaking voice wasn't enough of a clue. How cute.
 
 Since her gaze was stubbornly fixed away from me, I leaned in a little closer, my lips almost brushing against the delicate shape of her ear.
 
-“I love it,” I whispered.
+“I love it.” I whispered.
 
 A small yelp escaped her. She launched herself backwards, scrambling away until her back hit the far wall of the room, her face a delightful, deep crimson.
