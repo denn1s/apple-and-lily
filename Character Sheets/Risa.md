@@ -1,32 +1,22 @@
-# Character Sheet: Clarissa "Risa" Dawson
+# Character Sheet: Clarissa "Risa" Dawson (Updated)
 
 ## Core Information
-* **Role in Story:** The Shipper, The Producer, and The Audience Surrogate. She is the social engine of the dorm, Karin's best friend, and the first person to actively try to get Valerie and Karin together.
+* **Role in Story:** The Shipper, The Producer, The Mentor, and The Audience Surrogate. She is the social engine and "call to adventure" of the dorm, Karin's best friend, and the first person to actively try to get Valerie and Karin together.
 * **Age:** 21 (Third Year University)
-* **Studies:** Computer Science at an unnamed university. Unlike her friends, she is genuinely passionate about programming and is highly skilled at it.
+* **Studies:** Computer Science. She is genuinely passionate and highly skilled at it.
 
 ## Personality & Expression
-* **Personality:** A friendly, energetic "gremlin." She is loud, mischievous, and perpetually scheming—usually for the good of her friends. She's extremely passionate about her hobbies (gaming, her VN project) and her friends' happiness. She is direct, loyal, and has very little patience for beating around the bush.
-* **Speech Patterns:**
-    * **General:** Speaks quickly, excitedly, and is full of internet and gaming slang. She is blunt and speaks her mind, but her tone is almost always teasing and affectionate.
-    * **Quirk:** As the self-appointed Namer of the dorm, she loves bestowing nicknames and titles on people. This comes from a personal dislike of her own "stuffy" name, Clarissa. She exclusively goes by Risa.
-    * **Example Quotes:**
-        > (Bursting into Karin's room) "Ringo-sensei! You are not gonna believe the patch notes for *Cyber-Struggle V*. They totally nerfed the Chrono-Lancer!"
-        > (To Karin, about Lily) "Okay, so the hot chick is an airhead. An adorable, clueless airhead. You have my blessing. Now make your move already, you idiot."
-        > "I have a new title for you! From this day forward, you are Riri-hime, the Lily Princess of this rundown castle! Has a nice ring to it, right?"
-* **Narrative Signals (Non-Verbal):**
-    * Expressive and constantly in motion. She talks with her hands, leans in close, and is not afraid of casual physical contact like a playful shove or a slap on the back.
-    * Her default expression is a wide, mischievous grin.
-    * She is almost always seen with a gaming handheld, her phone, or a can of energy drink.
+* **Personality:** A friendly, energetic "gremlin." She is loud, mischievous, and perpetually scheming—usually for the good of her friends. She is extremely passionate about her hobbies (gaming, 3D printing, her VN project) and her friends' happiness.
+* **Quirk:** As the self-appointed "Namer" of the dorm, she loves bestowing nicknames and titles on people, stemming from a dislike of her own formal name, Clarissa.
 
 ## Motivation & Relationships
-* **Motivation:** Her primary drives are her creative passions (like her visual novel) and a fierce loyalty to her friends. She sees the people around her like characters in a story and wants to help them achieve their "good ending." Hating her own formal name makes her passionate about giving others identities she feels are cooler and more fitting.
+* **Motivation:** Her primary drives are her creative passions and a fierce loyalty to her friends. She sees the people around her like characters in a story and wants to help them achieve their "good ending."
 * **Relationships:**
-    * **With Karin ("Ringo-sensei"):** She is Karin's lifeline to the outside world. She sees past Karin's prickly exterior to the "soft-hearted idiot" underneath. She is Karin's biggest fan, her loving tormentor, and her most loyal defender.
-    * **With Valerie ("Riri-hime"):** Her opinion shifts quickly from "suspicious hot chick" to "precious, must-protect puppy." She finds Lily's earnest cluelessness both hilarious and endearing and quickly "adopts" her into their group.
-    * **With the Dorm:** She is the connective tissue. She knows what everyone's "mania" is and thinks it's cool. She is the one most likely to try and organize a group activity, like a game night or a movie marathon.
+    * **With Karin ("Ringo-sensei"):** She is Karin's lifeline and protector, having been there for her since the traumatic event in high school. She sees past Karin's prickly exterior to the "soft-hearted idiot" underneath and acts as her loving tormentor and hype-man.
+    * **With Valerie ("Riri-hime"):** She quickly sees through Valerie's "innocent" facade and recognizes her as a fellow mischievous agent of chaos. She is fully aware of and amused by the "Spider Lily" dynamic and does everything she can to facilitate it.
+    * **With the Dorm:** She is the connective tissue and a mentor figure to the younger students. She knows what everyone's "mania" is and is the one most likely to organize a group activity.
 
 ## Skills & Strengths
-* **Technical Prowess:** A genuinely talented programmer and all-around tech expert. She's the person you go to when your code won't compile or your PC is acting up.
-* **Creative Vision:** She is a passionate creator, serving as the writer, director, and producer of her own visual novel project.
-* **Social Intelligence:** While not always "smooth," she is highly observant of social dynamics and emotions. She can read a room instantly and understands her friends' feelings, even when they try to hide them. Her greatest strength is her proactive, unwavering loyalty.
+* **Technical Prowess:** A genuinely talented programmer and all-around tech expert, including knowledge of 3D printing.
+* **Creative Vision:** A passionate creator and project manager for her own visual novel.
+* **Social Intelligence:** She is highly observant of social dynamics and emotions, allowing her to understand both Karin's fears and Valerie's secret intentions. Her greatest strength is her proactive, unwavering loyalty.
