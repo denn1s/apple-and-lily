@@ -14,13 +14,13 @@ Her lips curved into a sharp smile that could cut glass.
   
 “*Sensei*.”  
   
-*No, this is a goddamn predator, and you are its damned prey.*  
+*No Karin, this is a damned predator, and you are its goddamn prey.*  
   
 She lowered the sharp point of the chopsticks. Slowly. From my eyes… to my cheeks. From my cheeks… to my lips.  
   
 *Stay absolutely still, Karin. Their vision is based on movement.*  
   
-Her eyes, those mesmerizing eyes, locked onto mine and wouldn't let go. I felt myself drawn towards her. They held me captive and pulled me closer and closer, ever so slightly…  
+Her eyes, those mesmerizing eyes, locked onto mine and wouldn't let go. I felt myself drawn towards her. They held me captive and pulled me closer and closer…  
   
 *\*Click\**  
   
@@ -50,7 +50,7 @@ It was too late when I realized my fatal mistake.  
   
 *They can smell fear.*  
   
-I didn't miss that damned demonic glint as she stood from her cushion. She had just locked onto her prey.  
+I didn't miss that cursed demonic glint as she stood from her cushion. She had just locked onto her prey.  
   
 She moved quickly, her movements betraying no sound. Not even the whisper of fabric. Not when she was hunting.  
   
@@ -77,15 +77,15 @@ My one brain cell, which had just clocked in for its shift, immediately filed a 
   
 “Uh—Wha—What the hell are you doing?!”  
   
-“We're both right-handed,” she explained, calm, like she was reading the freaking dictionary.
+“We're both right-handed,” she explained, calm, like she was reading the blasted dictionary.
 
 “I was having trouble seeing the angle from over there.” Her words barely registered. Her face was too close when she turned to speak. Her back was too close. Her _everything_ was too freaking close. 
 
-She shifted slightly, her lower back brushing against my shin. I swear my entire nervous system was a nanosecond away from a full core meltdown.  
+She shifted slightly and her lower back brushed against my shin. I swear my entire nervous system was a nanosecond away from a full core meltdown.  
 
-Then, a sweet, flowery scent reached me from her hair, and all of a sudden I found myself in a wide meadow. The grass was waist-high, a sea of green and gold swaying in the gentle breeze. The sun was high in the sky, its light bathing me in warmth. It was radiant. Peaceful…  
+Then, a sweet, flowery scent reached me from her hair, and all of a sudden I found myself in a wide meadow. The grass was waist-high, a sea of green and gold swaying in the gentle breeze. The sun was high in the sky, its light bathing me in warmth. It was radiant. Peaceful.
   
-But something was wrong. Far off to the left, the grass bent and parted, pushed aside by something moving low and fast. I turned, but it was gone. Then there was a stir to the right, closer this time, but it again vanished before I could pin it down. The meadow stilled once more, but the silence pressed down on me. It was suffocating. The trap was set. All around me, the grass shivered as the shadows closed in—and then…
+But something was wrong. Far off to the left, the grass bent and parted, pushed aside by something moving low and fast. I quickly turned, but it was gone. Then there was a stir to the right, closer this time, but it again vanished before I could pin it down. The meadow stilled once more, but the silence pressed down on me. It was suffocating. The trap was set. All around me, the grass shivered as the shadows closed in—and then…
 
 Her hand clamped down over mine.  
   
@@ -97,7 +97,7 @@ Thank god for muscle memory, because my brain cell had just pulled out a tiny pi
 
 “I see…” Lily murmured. “So that's how it's done.”  
   
-Her words were just background noise as what was left of my senses focused on how her breath felt warm against my skin. No, not warm—it was hot. It was _*scalding*_. My hand was burning, and the heat was spreading up my arm. Everything was on fire. I was on fire. The heat was melting me from the inside out. I could feel it rise through my neck, turning my bones to liquid, my cheeks into hot lava, and finally my brain into mush.  
+Her words were just background noise as what was left of my senses focused on how her breath felt warm against my skin. No, not warm—it was hot. It was _*scalding*_. My hand was burning, and the heat was spreading up my arm. Everything was on fire. *I* was on fire. The heat was melting me from the inside out. I could feel it rise through my neck, turning my bones to liquid, my cheeks into hot lava, and finally my brain into mush.  
 
 Through the cinders of what was left of my body, I felt her fingers wrap around the back of my hand. She moved the chopsticks in my grip around and even clicked them around as if testing them…
 
@@ -118,7 +118,7 @@ That was it. I snapped. I scrambled to my feet, nearly pushing her off. “Sorry
   
 I practically fled towards the bathroom, my one safe haven.  
   
-“It's a shame, though,” her voice called out. “We'll have to leave Part Two of the lesson for another day.”  
+“It's a shame, though,” her voice called out before I closed the door. “We'll have to leave Part Two of the lesson for another day.”  
   
 I froze, my hand on the doorknob. Ice water flowed through my veins as I slowly turned my head. “… T-There's a Part T-Two?”  
   
@@ -140,11 +140,11 @@ After holding a pout for a minute, Lily, as in retaliation, hit me with the one 
   
 “So, how come I never see you in my lectures? You didn't tell me yesterday.”    
   
-I froze, should I tell her? Will she laugh? Cry? Honestly I didn't know which one was worse.
+I froze. Should I tell her? Will she laugh? Cry? Honestly I didn't know which one was worse.
 
 For some stupid reason, I opened my mouth.  
   
-“I don't really go,” I mumbled, my fingers fidgeting with the hem of my hoodie.
+“I don't really go,” I mumbled, my fingers fidgeting by themselves with the hem of my hoodie.
 
 “Lately…” I took a shaky breath, tasting the lingering salt from the noodles. “It's been getting harder to leave my room. It started in high school, but it's gotten worse…”
 
