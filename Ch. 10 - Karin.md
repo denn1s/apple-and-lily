@@ -54,52 +54,39 @@ My body reacted before my brain could. I shoved myself backward with the force o
 
 What? What just happened?
 
-I slumped against the plaster, blinking. My entire right ear was on fire, and I could still feel traces of her breath on my skin. My dazed eyes found Lily first. She was watching me with that infuriatingly clueless smile. But that wasn't even the worst part. Oh no.The true horror came when my gaze finally landed on Risa.
+I could still feel the burning heat in my ear when my mind went blank.
 
-She was looking at me with the gentle, loving smile of a damned mother watching her daughter take her first steps. My blood ran cold. 
 
-"Excuse me, Risa," Lily's voice seemed to cut through a thick haze around me. "Rin here was telling me you could help us with our classes?"
+### A Lady's Touch
+>
+**Pairings:** Noble Lady/Poor Girl 
+**Tags:** Yuri, Fluff, Otome Isekai, First Meeting, Touch-Starved, Class Difference 
+**Summary:** A beautiful noble lady finds a poor girl in the street and offers her a kindness she's never known before.
+>
+_A shadow fell over her. She looked up to see a noble lady crouching before her, a vision of silk and jewels that seemed to glow against the grime of the outer city. She was beautiful, so beautiful it made the poor girl's breath catch in her throat._
+>
+_"Are you hurt?" the noble lady asked._
+>
+_Dazed by such radiance, the poor girl could only shake her head mutely, her gaze fixed on the lady's concerned eyes._
+>
+_"Good," the lady said with a gentle smile as she offered a hand. For a moment, the poor girl could only stare at the outstretched palm, a stark contrast to her own dirt-stained fingers. When the girl didn't move, the lady simply reached down, her warm fingers wrapping  around hers. The poor girl flinched; she couldn't remember the last time she had felt the warmth of another person's touch._
+>
+_Once she was upright, the noble lady began to uselessly dust the poor girl's ragged clothes, not caring in the slightest as filth smudged her own expensive gown._
+>
+_"Shall we go?" the noble lady asked, her hand still holding the poor girl's. It was then, feeling the precious warmth in her palm, that the poor girl decided she would stay by this lady's side for as long as she would have her._
+>
 
-"Of course I'll help my two cute underclassmen!" Risa's voice sounded distant and entirely too cheerful.
-
-My gaze was fixed on a meaningless spot on the floor when a pair of fancy shoes entered my vision. I followed them up. Lily was standing over me, offering a hand.
-
-"What do you need help with?" Risa continued, her voice still sounding miles away.
-
-My own hand lifted, moving on instinct. It stopped just short of hers as my brain caught up, but it was too late.
-
-"Like... everything," Lily said, her tone unconcerned.
-
-She closed the remaining distance grabbed my hand and pulled. 
-
-_Of course she doesn't hesitate. Normies like her are probably used to grabbing girl's hands._ 
-"That bad, huh?" Risa asked.
-
-I felt a series of light thumps against my shoulders. Lily was carefully dusting off my hoodie. Which was completely unnecessary, by the way.
-
-"That bad," Lily confirmed with a nod. "We've been trying to study together, but you see... we keep getting distracted."
-
-Risa’s grin was audible in her voice. "_Distracted_, eh?"
-
-Satisfied with her work, Lily took my arm and simply steered me the few steps back to the kotatsu. A light pressure on my shoulders had me sitting on my cushion before I’d fully processed anything that had just happened.
-
-"Sure!" Risa said. "I don't have classes tomorrow, why don't you bring your laptop to my room? I'll set you up with some cool stuff."
-
-My head tilted up. Risa was watching us, and that soft, motherly smile hadn't left her face. 
-
-"That would be a big help. Thanks," Lily replied, taking her seat.
-
-Risa’s gaze lingered on us for a moment longer, her smile softening into something that promised I would never know peace again.
+Lily guided me by the hand and gently let me back down to my spot in the kotatsu. 
 
 "My," Risa said, her voice deceptively sweet. "It's nice to see the Baka-couple is doing so well."
 
-The words echoed in the sudden silence. *Baka-couple*.
+Risa's voice finally broke me from my daze. Wait wait? 
 
 Lily, a picture of innocence, looked from Risa’s triumphant grin to me.
 
 "Couple?" she asked, her head tilting. "Are you referring to us working on the model kit together?"
 
-Thank god. Thank every deity in the pantheon. Her denseness is a shield.
+I shook my head. Couple? Who and who?
 
 "Oh, Princess," Risa sighed, her voice full of pity. "My sweet, sweet summer child."
 
@@ -108,6 +95,8 @@ Lily blinked. "Thank you? But then… what does *Baka* mean?"
 "It's simple! **Va**-lerie and **Ka**-rin. **Va**-**Ka**. Baka!" Risa beamed, looking far too proud of herself.
 
 Lily's eyes widened slightly. "Oh! Like a portmanteau. That's quite clever."
+
+Risa’s words echoed in my still stunned brain. _Baka-couple._
 
 I let out a defeated groan, burying my face in my hands. "Dammit," I muttered into my palms. "That's so good I'm not even mad."
 
@@ -166,3 +155,190 @@ She then turned to Risa, who was wiping tears from her eyes and trying to catch 
 Risa had a wide grin still plastered on her face. "Sure, Princess. But I'll have to take it to go. My evening classes start soon."
 
 "I'll get you something easy to carry, then."
+
+---
+
+The door clicked shut.
+
+In the sudden absence of chaos, the only sounds left were the last of Risa’s chuckles. She wiped a tear from the corner of her eye, pushing herself up from the floor with a lingering grin.
+
+"Wow, Sensei," she said, stretching her arms above her head. "Already got the little princess trained to fetch. I'm impressed."
+
+"It's not like that," I mumbled into the table. "I think she's just… trying to help."
+
+"Help?" Risa’s stretching stopped, her arms slowly lowering. The smile vanished from her face.
+
+I kept my head down but gave a small, miserable nod. A beat of silence passed as the full implication landed on her.
+
+Risa’s breath hitched. "No way," she whispered, her voice full of disbelief. "You actually told her?"
+
+*Honestly, I’m as surprised as she is.*
+
+"I didn't mean to," I admitted, my voice quiet. "It just slipped out."
+
+I finally lifted my head to meet her eyes. "It’s been getting worse. Before, just going outside the dorm was enough to make me freeze up. Now even leaving this room feels like a fight." I took in some air. "And I’m losing."
+
+The smirk on Risa’s face faltered, then vanished completely. She straightened up, her posture losing its lazy slouch as she met my gaze with a familiar deep-set concern I knew all too well.
+
+"Karin… I'm so sorry." She sighed, running a hand over her arm. "I was the one who pushed you to come here. I really thought getting you out of your parents' house would help."
+
+At this rate, this year will just be a repeat of the last. My world limited to just this one room.
+
+"It's not your fault." I told her. "And you know I hate it when people make a big deal out of it."
+
+Risa held my gaze for a moment longer, until the seriousness on her face melted away, replaced by a familiar smirk.
+
+"Oh?" she teased. "But _she's_ allowed to make a big deal out of it?"
+
+She leaned forward, aiming a sickeningly sweet smile at the unpainted Riri-hime figure as her finger traced the outline of its non-existent hair.
+
+I scoffed. "She's just a busybody. Like all the others."
+
+Risa pushed herself to her feet, picking up the figure. She walked over to a bookshelf and carefully placed the statue back in its empty spot, nestled in front of a row of novels.
+
+Only then did she turn back to me, leaning against the shelf with her arms crossed. But her teasing smirk was not gone.
+
+"So, how are things _really_ going on with Princess?" Risa asked.
+
+I pulled my knees to my chest, hugging them. "Nothing's 'going on'," I said, my voice barely over a whisper. "She's just using this room as her new private library, and I just happen to come with it."
+
+*It's all just the new thing she found "fascinating". Next month, it'll be pottery or something.*
+
+"Let's be real, Risa. Someone like her wouldn't look twice at someone like me."
+
+*She might as well be an actual princess.*
+
+Risa hummed, turning to scan the crowded bookshelves. "Is that really it?" she asked. 
+
+She pulled a book from the shelf, clearly just for show, and flipped it open to a random page. She stared at the text for a minute.
+
+"She does know you're into girls, right?"
+
+Of course, she knows. I'm the tour guide for her latest obsession.
+
+Still facing the shelves, Risa continued, not caring for my answer. "And she knows about your… condition."
+
+She flipped a couple of pages, as if she where reading a freaking law book and not some random smut. 
+
+“And yet,” she said. “Despite knowing all of your so-called faults, she keeps coming back.” And with that, she snapped the book shut.
+
+*She keeps coming back.*
+
+The echo of those words brought that damn heat back to my cheeks and I couldn't stop it in time.
+
+When I met Risa's eyes, a cat-like grin had already spread across her face. Satisfied, she slid the book back onto the shelf.
+
+"I'd say you're doing pretty damn well, Sensei."
+
+Risa's victorious grin widened. She strolled back to the kotatsu and settled onto her cushion, giving me a moment to stew in my embarrassment before mercifully changing the subject.
+
+"Anyway," she said. "I wonder what she's bringing back. Probably something fancy from that cafe downtown, right?"
+
+A small smile touched my lips.
+
+*Risa might be able to read me like a freaking book, but on this, I had her beat.*
+
+"Probably cake," I said, my voice full of a confidence I hadn't felt all day.
+
+Risa paused. "... You mean, for dessert?"
+
+"Nope," I said, enjoying the genuine confusion on her face. "Just cake."
+
+*That's just how she is.*
+
+Risa just shook her head slowly. "Ugh. Cake? For lunch? God, my empty stomach is going to riot."
+
+A real, honest-to-god chuckle escaped me.
+
+She let out a long, dramatic sigh, slumping back. "And here I thought having her around might actually improve your garbage eating habits."
+
+
+Just as the words left her mouth, the door slid open.
+
+Lily walked in holding a paper bag that was way too fancy to belong anywhere near this room.
+
+“I’m back,” she said cheerfully. “Sorry for the wait, the line was long.”
+
+She pulled three white boxes and put them on the counter. I could smell the sugar from here.
+
+_Called it._ A smug little grin tugged at my lips.
+
+Risa stared like she’d just seen the gates of heaven creak open, but quickly shook it off. 
+
+"Welcome back, Princess! We were just talking about you."  
+
+My foot shot out under the table, smacking square into her shin. 
+
+"Alright, alright," she wheezed, rubbing her leg. "Message received. Anyway, I really gotta dip. Evening class is coming up."  
+
+Lily, ever the gracious host in someone else's damn room, looked at Risa as if she'd kicked a puppy. "Awwww, that's too bad. I got you the cutest little strawberry sponge cake."
+
+I didn't miss Risa's twitch. "I'll take it to go, but this old lady needs something with actual substance for lunch."
+
+Lily's expression turned thoughtful, completely missing the point. "I see. Well, I'll be sure to get you a larger portion next time, then."
+
+Risa’s smile twitched. I couldn't help it when a snort of laughter escaped me. It was nice to see Risa on the receiving end of Lily's weaponized cluelessness for a change.
+
+Lily held the cake box out like an offering, but as Risa’s fingers were about to close around it, she retracted it.
+
+"Risa," she said. "Before you go... I was hoping I could ask for your help with our classes."
+
+Risa's interest was clearly piqued. She playfully launched her hand to grab the box. "Of course! Anything for my two cute little kouhai. With what?"
+
+"Well..." Lily said. "Everything."
+
+Risa didn't miss a beat. "Say no more. Bring your laptop over to my room tomorrow. I'll get you set up with some good stuff."
+
+To my surprise, Lily didn't immediately agree. Her gaze shifted back to me for a second. "Okay," she said finally. "We'll see."
+
+*Wait. Is she actually hesitating… for my sake?*
+
+Risa either didn't notice the exchange or chose to ignore it. She finally took the cake box from Lily with a nod. "Alright, I'm out for real now. See you later!"
+
+She slid the door open but paused at the threshold, turning back to flash us one last, wicked grin.
+
+"Try not to have too much fun with your... ehm... *project*."
+
+And with that, she was gone.
+
+---
+
+Lily came back to the kotatsu and dropped the two remaining cake boxes on the table. She took her usual spot on the cushion next to me, tucking her legs up all neat and proper. 
+
+She turned her attention to her box. I watched her out of the corner of my eye, expecting her to just open it. Instead, she fumbled with it, tilting it awkwardly to try to pry open the flaps on the bottom. What the hell was she doing?
+
+Then she paused, both hands flat on top like she was about to perform some magic trick. With this little flourish, she lifted the whole box straight up, revealing a slice of cake sitting on its cardboard plate.
+
+Oh, I get it. She was doing that thing Risa did earlier today with the garage kit. The whole dramatic reveal.
+
+A silent clap of her hands confirmed it. She was ridiculously pleased with herself.
+
+*And here comes her little one-woman show.*
+
+By now, I knew well what would come next. She wouldn't just dig in like any sane person would. No. She'd stare at it first. And sure enough, that's exactly what she did. Her head tilted, and those brown eyes traced every damn detail as if it was a work of art. Christ, the intensity was giving me secondhand embarrassment.
+
+Then, after a full minute or so, she’d pick up her fork. Her first bite was always just a tiny piece from the corner, like she didn’t want to ruin the aesthetics of her slice. And of course, today was no exception—she cut her piece, dragged it to her lips, and did the whole eye-shut routine.
+
+And then the shiver started.
+
+She always did this full-body quiver that started in her shoulders and made her ears tremble. A shudder of pure bliss. It was like watching one of those cooking anime moments where they ascend to food heaven or whatever. Maybe her clothes will explode one of these days.
+
+I shook my head, dismissing the image before it went too far. Time to move.
+
+Before she could even open her eyes, I leaned over and stabbed my fork into the far corner of her cake. Took a piece and swallowed it before I even tasted it.
+
+If I didn’t, her fork would be headed straight for my mouth next.
+
+Then, before she could get any other bright ideas, I cut a piece from my own cake and slid it onto the edge of her cardboard plate.
+
+When she opened her eyes, she finally noticed the piece I had traded. Her mouth was still full, but she started making these muffled sounds while pointing at where I'd taken my bite. "Mm! Mmm-hmm?" That meant "Wasn't it good?" in normal people speak. 
+
+I nodded quickly. If I didn't, she'd probably try to feed me another bite herself. With her fork.
+
+After that, as always, she’d finally turn to her own lunch, and I could have some peace.
+
+I watched her eat for a bit longer, completely lost in her world of sugary bliss. Each bite followed the same process. Observe, cut, lift, savor, repeat. She'd pause after bites too, like she was giving each one its proper respect or something. It was ridiculous. Who the hell eats cake like that? And yet, I couldn't look away. 
+
+My own slice sat there, almost completely untouched. Yet somehow, just watching her, made me feel full in a different way.
+
+
