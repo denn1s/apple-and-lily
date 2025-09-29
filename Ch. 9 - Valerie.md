@@ -130,7 +130,11 @@ In a flash of movement that caught me completely by surprise, she threw an arm a
 
 Oh! I’m finally part of one!
 
-But sadly, my delight lasted only a fraction of a second. I saw the raw panic flash in Rin's eyes as she registered what she had just done. A lovely pale red began to creep up from the collar of her hoodie. She started to pull her arm back but stopped herself midway. She was probably worried about what I would think if she pulled away so suddenly. And just like that, she was trapped. Her hand now hovered just over my shoulder, not quite touching, not quite withdrawn, suspended by her own anxieties.
+But sadly, my delight lasted only a fraction of a second. I saw the raw panic flash in Rin's eyes as she registered what she had just done. A lovely pale red began to creep up from the collar of her hoodie. She started to pull her arm back but stopped herself midway. She was probably worried about what I would think if she pulled away so suddenly.
+
+And just like that, she was trapped. {She had trapped herself?}
+
+Her hand now hovered just over my shoulder, not quite touching, not quite withdrawn, suspended by her own anxieties.
 
 “S-so… ehm…” she stammered. “Y-you know how we haven’t been able to… to s-study? Like at all?”
 
