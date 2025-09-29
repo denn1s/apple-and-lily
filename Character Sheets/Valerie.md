@@ -1,15 +1,21 @@
 # Character Sheet: Valerie "Lily" Linden
 
-## Core Information
+## General Information
 * **Public Role:** The Seeker / The Clueless Princess. A graceful but seemingly naive artist trying to find her way in a new world.
 * **True Role:** The Playful Seductress / The Mastermind. An incredibly perceptive girl who, having escaped her rigid past, decides to have fun by playfully pursuing the cute, flustered nerd next door.
+* **Gender:** Female, She/Her
 * **Age:** 18
 * **Studies:** Computer Science (chosen out of spite to escape her family's world of art).
+
+## Core Wound
+- Valerie is a girl who really enjoys new experiences. She is curious and is easily fascinated by new and exciting experiences. She is a natural artist a creator.
+- However, years of strict upbringing have all but killed her passion for art. Despite her personality, she is without any specific passion and has taken the role of an observer and not a creator. 
 
 ## Personality & Expression
 * **Public Persona (The Mask):** Poised, unfailingly polite, and deeply earnest. She often appears gracefully clumsy in romantic-comedy situations and seems completely oblivious to social and romantic subtext. This is a carefully maintained performance.
 * **Private Self (The Truth):** Sharp, mischievous, observant, and surprisingly confident. She reads people and situations with the keen eye of a painter. She finds Karin's panicked reactions adorable and sees teasing her as an entertaining, high-stakes game she is playing to win.
 * **Speech Patterns:** Her precise, simple, and earnest way of speaking is a part of her "innocent girl" persona. Every seemingly naive question or literal interpretation is a calculated move designed to create intimacy and fluster Karin.
+* She has a rebellious edge in her personality, which she often shows in small things, such as refusing to carefully organize her paint, or to have proper meals, or study every day. This is reflected in her speech pattern, which still has a formal basis, but that occasionally shows teen speech and expressions she recently learned.  
 * **Narrative Signals (The "Tells"):**
     * Her "clumsiness" is often perfectly timed to create chaotic, intimate situations that only affect Karin.
     * Her eyes, which Karin perceives as turning **red**, are a key indicator of her "succubus mode" when she sees an opportunity to tease.
