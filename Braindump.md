@@ -144,7 +144,22 @@ The primary goal of this act is to introduce the main characters and their core 
 This act focuses on deepening their new partnership through shared projects and mutual support. The main goals are to have both girls share their core vulnerabilities for the first time—Valerie's trauma with her art and Karin's struggle with leaving the dorm. They begin collaborating on creative projects with the other dorm residents, forming a "found family." The act's climax is the Final Exams Trip, a high-stakes event where Karin must rely completely on Valerie for support to leave the dorm, cementing their emotional and physical dependence.
 
 ### Act 3: The First Storm - An External Threat
-The central goal is to test the bond they've built. An external force from Valerie's old life (likely her mother or sister, prompted by her failing grades) arrives, threatening to pull her back into the world of high art. This forces Karin to confront her deepest insecurities about being "worthy" of someone from a different world. The conflict will test their reliance on each other and will conclude with a reconciliation that proves their commitment is stronger than the external pressures.
+The central goal is to test the bond they've built. An external force from Valerie's old life (likely her mother or sister, prompted by her failing grades) arrives, threatening to pull her back into the world of high art. This forces Karin to confront her deepest insecurities about being "worthy" of someone from a different world. The c
+I slumped against the plaster, blinking. My entire right ear was on fire, and I could still feel traces of her breath on my skin. My dazed eyes found Lily first. She was watching me with that infuriatingly clueless smile. But that wasn't even the worst part. Oh no. The true horror came when my gaze finally landed on Risa.
+
+She was looking at me with the gentle, loving smile of a damned mother watching her daughter take her first steps. My blood ran cold. I couldn't stand it, and my gaze dropped away from her face—only to land on the hem of a skirt that was suddenly right in front of me.
+
+My eyes traveled up slowly up to her face. Lily was standing over me, her hand outstretched. Before my brain could even process the offer, she closed the distance, her warm fingers wrapping around mine as she pulled me effortlessly to my feet.
+
+Once I was back in my glorious not-sprawled-on-the-floor form, for some reason, she began to carefully dust off my hoodie. Eventually, she simply took my arm and steered me the few steps back to the kotatsu. A light pressure on my shoulders had me sitting on my cushion before I’d fully processed anything that had just happened.
+
+"Risa, could you help us with our classes?" Lily asked, her tone unconcerned. "We've been trying to study, but we keep getting distracted."
+
+"Sure, Princess," Risa replied instantly. "Bring your laptop to my room tomorrow; I'll set you up with some cool stuff."
+
+"That would be a big help, thanks."
+
+"It's no biggie." Risa’s grin was audible in her voice. "Though, '￼￼distracted￼￼,' eh? It's nice to see the Baka-couple getting along so well."onflict will test their reliance on each other and will conclude with a reconciliation that proves their commitment is stronger than the external pressures.
 
 ### Act 4: The Confession - An Honest Future
 This final act is about resolving all remaining internal barriers and misunderstandings, allowing them to become a couple. Key events include a cozy dorm party where Karin's feelings accidentally slip out, a period of sweet, awkward tension, and an intervention by their friends that forces them together. The climax sees Karin finally overcoming her last fear after an epiphany in Valerie's room, leading to a mutual, official confession. The act also resolves Valerie's academic arc as she decides to change her major, and sets Karin on a clear path to recovery with Valerie's support.
@@ -159,6 +174,21 @@ Saved for later, lily's second time painting
 - On a smooth garage kit, they might just start painting over small mold lines or bumps and not notice at first, unless the imperfections are glaring.
     
 - Usually, they realize sanding is important **after seeing paint sit unevenly** or flake off in spots.
+I slumped against the plaster, blinking. My entire right ear was on fire, and I could still feel traces of her breath on my skin. My dazed eyes found Lily first. She was watching me with that infuriatingly clueless smile. But that wasn't even the worst part. Oh no. The true horror came when my gaze finally landed on Risa.
+
+She was looking at me with the gentle, loving smile of a damned mother watching her daughter take her first steps. My blood ran cold. I couldn't stand it, and my gaze dropped away from her face—only to land on the hem of a skirt that was suddenly right in front of me.
+
+My eyes traveled up slowly up to her face. Lily was standing over me, her hand outstretched. Before my brain could even process the offer, she closed the distance, her warm fingers wrapping around mine as she pulled me effortlessly to my feet.
+
+Once I was back in my glorious not-sprawled-on-the-floor form, for some reason, she began to carefully dust off my hoodie. Eventually, she simply took my arm and steered me the few steps back to the kotatsu. A light pressure on my shoulders had me sitting on my cushion before I’d fully processed anything that had just happened.
+
+"Risa, could you help us with our classes?" Lily asked, her tone unconcerned. "We've been trying to study, but we keep getting distracted."
+
+"Sure, Princess," Risa replied instantly. "Bring your laptop to my room tomorrow; I'll set you up with some cool stuff."
+
+"That would be a big help, thanks."
+
+"It's no biggie." Risa’s grin was audible in her voice. "Though, '￼￼distracted￼￼,' eh? It's nice to see the Baka-couple getting along so well."
     
 
 ### **2. Varnishes / Sealers**
@@ -176,4 +206,9 @@ Saved for later, lily's second time painting
     
 - They’d likely discover thinning the paint is necessary **after struggling to cover fine details without pooling or clumping**.
   
-  
+
+I slumped against the plaster, blinking. My entire right ear was on fire, and I could still feel traces of her breath on my skin. My dazed eyes found Lily first. She was watching me with that infuriatingly clueless smile. But that wasn't even the worst part. Oh no. The true horror came when my gaze finally landed on Risa.
+
+She was looking at me with the gentle, loving smile of a damned mother watching her daughter take her first steps. My blood ran cold. I couldn't stand it, and my gaze dropped away from her face—only to land on the hem of a skirt that was suddenly right in front of me.
+
+My eyes traveled up slowly, from the fabric, past her legs, and up to her face. Lily was standing over me, her hand outstretched. Before my brain could even process the offer, she closed the distance, her warm fingers wrapping around mine as she pulled me effortlessly to my feet.
