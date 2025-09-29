@@ -287,7 +287,7 @@ Risa's interest was clearly piqued. She playfully launched her hand to grab the 
 
 "Well..." Lily said. "Everything."
 
-Risa didn't miss a beat. "Say no more. Bring your laptop over to my room tomorrow. I'll get you set up with some good stuff."
+Risa didn't miss a beat. "Say no more. Bring your laptop over to my room on Sunday. I'll get you set up with some good stuff."
 
 To my surprise, Lily didn't immediately agree. Her gaze shifted back to me for a second. "Okay," she said finally. "We'll see."
 
