@@ -1,6 +1,6 @@
 I nudged the door open with my shoulder, one arm securing two paper bags against my chest. As expected, Rin was at her desk and the usual click-clack of her keyboard was the only sound filling the room.
 
-I walked over to the low table and set the bags down with a soft rustle.
+I walked over to the table and set the bags down with a soft rustle.
 
 “Is that you, Lily?” she asked without turning.
 
@@ -107,69 +107,116 @@ We pushed aside the one cushion that never seemed to get used, clearing a small 
 
 “Okay, you first,” I instructed. “Sit down and spread your legs. Try to reach for your toes.”
 
-Rin sat, her movements as stiff as a new paintbrush. I knelt behind her and placed my hands on the small of her back. Her muscles were wound and tight. Even through the fabric of her shirt, I could feel her tremble slightly at my touch. She must be very tense.
+Rin sat, her movements as stiff as a new paintbrush. I knelt behind her and placed my hands on the small of her back, and she immediately flinched, her entire body going rigid. Even through the thin fabric of her shirt, I could feel the heat of her skin and the frantic rhythm of her breathing.
 
-“Just breathe and relax,” I murmured, applying steady pressure. She exhaled in a sharp hiss, leaning forward just a fraction of an inch.
+"Just breathe," I whispered, letting my fingertips trace the rigid frame of her back. It was a bit like sculpting in reverse—trying to soften hardened clay rather than shape it. I let my palms glide up the outer edges of her back, feeling the fine tremor that ran through her in response. Then again, I traced those same paths, this time drawing out a little more tension. "Let go," I murmured, pressing my thumbs gently into the knots beside her spine, and felt the exact moment she surrendered with a long, shaky sigh as her entire body went pliant beneath my touch. A small victory.
 
-We switched places. When it was my turn, I sat waiting for her hands to land on my back. The silence stretched, and I could almost feel her hesitating behind me. When they finally made contact, her fingers were shaking so much it tickled. A laugh escaped me before I could stop it, and I felt her touch vanish instantly.
+She remained there her forehead resting on the floor. I watched the slow rise and fall of her back for a moment before I finally broke the quiet. "Alright, my turn."
 
-“It’s okay, you can touch me,” I said gently. “A little harder, please. I won’t break.”
+"Fine... whatever." She said after a defeated grumble.
 
-A defeated sigh escaped her. “Please, don’t start…”
+I shifted, taking her place on the floor and waiting as she slowly moved into position behind me. The silence stretched, and I could feel her hesitation behind me. When her hands finally made contact with my back, her fingers trembled so much it tickled.
 
-After another moment of hesitation, she pushed, her touch still incredibly light. {But they could stretch regardless?}
+A surprised laugh escaped me before I could stop it. Her hands vanished instantly.
 
-“Alright, now stand up,” I said once we were done. “Back-to-back.”
+“It’s okay,” I said, looking over my shoulder with a reassuring smile. I didn't mean to startle her. “You can touch me a little harder, please. I won’t break.”
 
-We stood, pressing our backs together. She linked her shaky arms with mine and I could feel her skin was already a little damp. Hopefully, that meant the warm-up was already working.
+She let out a resigned sigh, then said, “please, don’t start…”
 
-“My turn first,” I said. “You can be a little rough, I don’t mind.”
+Her hands returned a moment later, still hesitant, but with a new resolve. I leaned into her warm, uncertain touch, letting her guide the stretch.
 
-“… just don’t.” I heard her mutter, her voice as tight as her back felt.
+“Alright, next,” I said, once we were done. “Sit-ups. You can hold my feet.”
 
-She leaned forward, pulling me smoothly over her back. I felt a satisfying _pop_ from my spine as some of the tension released.
+I lay back, the floor cool against my skin. She knelt at my feet, her hands settling over my ankles. Her grip was surprisingly strong. I took a deep breath, tightened my core, and pulled. Nothing. I tried again, managing to lift my shoulders a few inches before collapsing back down with a groan. We really weren’t very athletic, were we?
 
-“There we go,” I said as we straightened up. “Now you.”
+“Come on…” I muttered, more determined now.
 
-I leaned forward, pulling her gently over my back. She was tense at first, but then, suddenly, she went completely limp, draping over me like a rag. She was surprisingly light. 
+I gritted my teeth, closed my eyes, and poured every last bit of strength into one final push. My body lurched upward, momentum carrying me much further and faster than I’d expected.
 
-Wow. Once she relaxes, she’s incredibly flexible.
+When I opened my eyes, the world had shrunk to the space of a single breath.
 
-I slowly stood up straight, carefully setting her back on her feet. She swayed slightly, her eyes glazed over and unfocused.
+Her face was right there. An inch away.
 
-I waved a hand in front of her face. “Woah, Rin, did you faint while standing up? Are you alright?”
-
-She blinked a few times, shaking her head as if to clear a fog. “I’m… fine.”
-
-“Last one, then,” I said, trying to keep my tone encouraging. “Sit-ups. You can hold my feet.”
-
-I lay down on the floor, and she knelt, placing her hands firmly on my ankles. I took a deep breath, tightened my stomach muscles, and pulled. But I could't rise much. I tried again, this time managing to lift my shoulders a few inches before collapsing back dow. We really aren’t very athletic, are we?
-
-“Come on…” I muttered to myself.
-
-I gritted my teeth, closed my eyes, and put every last bit of strength I had into one final push. My body lurched upward, the momentum carrying me much further than I’d expected. When I open my eyes, her face was right there.
-
-Inches away.
-
-Her eyes were wide with shock. We were both frozen, the air stood still, filled only with the sound of our own breathing. My gaze drifted down from her stunned eyes to her mouth.
+Time slowed. Her dark eyes were wide, fixed on mine. The only sound in the universe was the soft, uneven hitch of our breathing. My gaze drifted down from her stunned eyes to her mouth. Her lips were slightly parted.
 
 _Soft, warm, and—_
 
 _BZZZZZZT. BZZZZZZT._
 
-The loud, insistent vibration from her desk made us both jump. Rin shrieked, letting go of my feet. With no anchor, my body fell backward, and I landed with my back on the floor.
+A single, sharp buzz from her desk shattered the moment like glass. We both jumped. Rin let out a small yelp and let go of my feet.
 
-While Rin scrambled for her phone, I just lay there, staring at the ceiling, my heart still hammering against my ribs.
+My body, with no anchor, fell backward, landing on the floor with a soft _thump_. A second later, with a weary gasp of her own, she flopped backward too.
 
-“It’s… it’s a text,” she said from her desk. “From Risa.” She paused. “She’s asking if we’re coming over.”
+And so we lay there. Not side-by-side, but in an awkward line, both staring up at the plain white ceiling. From this angle, I couldn't see her face, and I knew she couldn't see mine. An unspoken, mutual truce.
 
-I sat up slowly. “Well? Do you want to go?”
+For an entire minute, we didn't speak and we didn't move.
 
-She turned around. Her face was still flushed a delightful shade of pink.
+_BZZZZZT._
 
-I softened my voice. “Do you think you’ll be okay?”
+The phone buzzed again, insistent in the quiet room.
 
-Rin took a long, deep breath, squaring her shoulders. It was an impressive, if not entirely convincing, display of resolve. “I’ll be fine. I’ve been there plenty of times.”
+"Aren't you going to get that?" I asked Rin.
 
-She didn’t sound fine at all.
+Her voice came muffled from the floor. "It has to be Risa."
 
+"Right." I rolled onto my side and pushed myself up. She hadn't moved an inch. "So… are we going?"
+
+She took long, deep breath that seemed to pull all the air in the room. Her voice, when it came, was brittle. “I’ll be fine. I’ve been there plenty of times.”
+
+It sounded like a line she had rehearsed. A soldier preparing for a battle no one else could see.
+
+"Alright, then," I said, getting to my feet with bright energy. I retrieved the paper bags and pulled out a pair of baggy white pants and a matching jacket.
+
+From the floor, Rin watched as I pulled the pants on over my shorts and zipped the jacket to my chin. 
+
+"You… you had normal clothes in there this whole time?" She asked, her voice mixed irritation with disbelief. 
+
+I smoothed the front of my jacket. "Well, I couldn't go out wearing just that."
+
+Another sigh escaped her. "But in here it was fine?"
+
+"Of course," I said, tilting my head with a soft smile. "How else are we going to do our daily stretches?"
+
+Her eyes went wide with fresh horror. "Did you just say… _daily_?"
+
+In response to her horror, I just offered a soft smile. Stepping closer, I extended my hand.
+
+"Shall we go?"
+
+But she pointedly ignored it, using the table to push herself to her feet instead. She brushed off her pants, refusing to meet my eyes.
+
+How stubborn. Is this what she called *tsundere* before? I can see why people find it charming.
+
+I let my hand fall back to my side. My gaze drifted to the laptop backpack I'd left by the door, and something occurred to me. But not yet. For now, I simply waited.
+
+After a moment that stretched thin, Rin took a shallow breath. She turned and began walking toward the door. Her steps were careful, measured, and slow, like someone crossing thin ice. When she reached the door, her hand rose and paused before gripping the doorknob. Her knuckles went white. With a slow turn, the door swung open to reveal the empty, bright hallway.
+
+I watched her shoulders drop when she saw no one was there. Her breathing evened out. She seemed fine now.
+
+I walked up to join her at the threshold, picking up my backpack and holding it by just one strap.
+
+"Rin, could you help me with this?"
+
+She gave me a flat look. "You carried three bags in here without breaking a sweat."
+
+"Well, maybe that's why my arms are so tired now."
+
+She looked skeptical.
+
+"How about we compromise?" I said brightly. "We can carry it together."
+
+I held out one of the straps to her. She let out a long sigh, but she took it.
+
+We stepped out into the hallway, leaving the door open behind us. I held one strap of my backpack while she gripped the other, like we were walking a small kid between us.
+
+Risa's room waited at the very end of the hall, past just one other door. Not far at all. Maybe fifteen steps.
+
+I walked slightly behind her, letting her set the pace. Her shoulders hunched forward and her head stayed down. Her eyes where fixed on that distant door like it was the only safe place in the world. One careful step. Then another.
+
+She gripped the strap so tightly her knuckles had gone white. I could feel the tension through the fabric, the way her hand trembled just slightly with each step. Her breathing had grown slightly shallow.
+
+We passed the door to the room beside hers. Almost there now.
+
+But then she stopped. Just froze mid-step.The hallway's silence pressed in around us. For her, it must feel too wide and empty.
+
+"Rin?" I asked softly, trying to make my voice as gentle as possible. "Are you alright?"
