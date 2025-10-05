@@ -14,6 +14,7 @@
 ## Personality & Expression
 * **Public Persona (The Mask):** Poised, unfailingly polite, and deeply earnest. She often appears gracefully clumsy in romantic-comedy situations and seems completely oblivious to social and romantic subtext. This is a carefully maintained performance.
 * **Private Self (The Truth):** Sharp, mischievous, observant, and surprisingly confident. She reads people and situations with the keen eye of a painter. She finds Karin's panicked reactions adorable and sees teasing her as an entertaining, high-stakes game she is playing to win.
+* **IMPORTANT NOTE:** Her Mastermind persona is hidden to both Karin and the reader. She is an **unreliable narrator**. However, in this point in the story, her mask slips sometimes, specially in moments of high emotions. Her mask should only slightly slips in the current point in the story. 85% of the time her airhead mask should be on and only rarely should her mask slip. 
 * **Speech Patterns:** Her precise, simple, and earnest way of speaking is a part of her "innocent girl" persona. Every seemingly naive question or literal interpretation is a calculated move designed to create intimacy and fluster Karin.
 * She has a rebellious edge in her personality, which she often shows in small things, such as refusing to carefully organize her paint, or to have proper meals, or study every day. This is reflected in her speech pattern, which still has a formal basis, but that occasionally shows teen speech and expressions she recently learned.  
 * **Narrative Signals (The "Tells"):**
