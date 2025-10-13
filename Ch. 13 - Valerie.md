@@ -32,7 +32,7 @@ So _today_ she isn't writing about thighs.
 
 She adjusted her glasses and looked away.
 
-"It's nothing. Just... starting something new. Don't have much yet."
+"It's nothing. Just... starting something new. Don't have much yet." {We need Karin flustered in the next chapter, so lets change this as to how she Is almost done}
 
 "Then tell me what it will be about."
 
