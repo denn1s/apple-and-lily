@@ -212,3 +212,26 @@ I slumped against the plaster, blinking. My entire right ear was on fire, and I 
 She was looking at me with the gentle, loving smile of a damned mother watching her daughter take her first steps. My blood ran cold. I couldn't stand it, and my gaze dropped away from her face—only to land on the hem of a skirt that was suddenly right in front of me.
 
 My eyes traveled up slowly, from the fabric, past her legs, and up to her face. Lily was standing over me, her hand outstretched. Before my brain could even process the offer, she closed the distance, her warm fingers wrapping around mine as she pulled me effortlessly to my feet.
+
+
+
+The loud, insistent vibration from her desk shattered the moment like glass. We both jumped. Rin shrieked, letting go of my feet as if they were burning coals. With no anchor, my balance vanished. I fell backward, landing on the floor with a soft thump that knocked the wind from me.
+
+While Rin scrambled for her phone, I just lay there, staring at the ceiling, my heart hammering against my ribs.
+
+“It’s… it’s a text,” she said from her desk, her voice breathless. “From Risa.” She paused. “She’s asking if we’re coming over.”
+
+I sat up slowly, my own face feeling unusually warm. “Well? Do you want to go?”
+
+She turned around, and I could see the flush was still high on her cheeks,o you think you’ll be okay?”
+
+Rin took a long, deep breath, squaring her shoulders. It was an impressive, if not entirely convincing, display of resolve. “I’ll be fine. I’ve been there plenty of times.”
+
+She said she was fine, but her voice was still a little shaky. I hoped she was telling the truth.
+
+fried chicken
+
+is that your idea of a healthy lunch?
+
+It's my idea of a celebration.
+
