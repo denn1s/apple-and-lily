@@ -6,7 +6,7 @@ Without hesitation, I pushed it open. She never did like people knocking.
 
 The moment I stepped inside, the tight knot in my chest began to loosen, as this wonderful, chaotic place washed away the stark white of the university's sterile walls.
 
-Rin was at her desk, the steady clicking of her keyboard filling the room with its usual rhythm. She didn't even glance up when I entered, completely absorbed in whatever she was working on today. How wonderfully predictable of her.
+Rin was at her desk, the steady clicking {change this cliche} of her keyboard filling the room with its usual rhythm. She didn't even glance up when I entered, completely absorbed in whatever she was working on today. How wonderfully predictable of her.
 
 But today there was something different. Risa was here. She was sitting cross-legged at the table, surrounded by what looked like a small explosion of plastic pieces. 
 
