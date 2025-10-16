@@ -132,37 +132,30 @@ Her free hand darted forward. In one smooth motion, my glasses were gone.
 
 And the world dissolved into a blur.
 
----
-
 
 ### The Words She Never Said
 >
-**Pairings:** Karin/Literally The Devil  
+**Pairings:** Karin/Literally The Devil
 **Tags:** Yuri, Mutual Pining, Dust Allergies, Symbolism With Candles, Angst With Elegant Vocabulary, Author Needs Therapy
 **Summary:** A pair of idiots meet on a castle library.
 >
-*Every night, Human Girl Karin, caretaker of the ancient library, watched the candles with anticipation. When their flames sank to the halfway point, flickering like tired sighs, she knew the hour had come.*
+_Human Girl Karin pretended not to stare as Pureblood Vampire Lily crossed the marble floor. That golden cascade of hair caught the candlelight like captured dawn. Those crimson eyes held sunset's fire. And that pale skin was like evening clouds. A beauty that held day's colors captive yet commanded night itself._
 >
-*Every night, the heavy doors swung open without a sound, and Pureblood Vampire Lily entered with the quiet grace of dawn. Her hair was a golden cascade, radiant as the first light that crowns the morning sky. Her skin was pale as the clouds that linger at evening. Her eyes, a deep crimson, held the fire of the sunset itself. And though her beauty carried the colors of day, her presence commanded the night, drawing every shadow to kneel in silent reverence.*
+_Every night Pureblood Vampire Lily would draw forth the same ancient volume from the same shelf. And every night, Human Girl Karin wondered what it would be like to surrender, to be bound within that endless will, to share that eternity which belonged only to her..._
 >
-*Every night, Human Girl Karin stepped aside in devoted silence, her head bowed low and her hands folded against her chest. As always, she dared not speak. As always, Human Girl Karin pretended not to stare.*
+_But she never asked for it. She never would._
 >
-*And as always, Pureblood Vampire Lily crossed the marble floor without a sound. She reached the same shelf, drew forth the same ancient volume, and opened it to the same worn pages where her gaze remained fixed until the verge of dawn.*
+_For vampires must stay fleeting if they are to remain eternal._
 >
-*And every night, Human Girl Karin wondered in secret what it would be like to surrender, to offer herself fully, to live and be bound within that endless will, within that eternity that belonged only to her.*
+_What the human girl did not know was that from behind an unread tome, she was being watched. The vampire had memorized every word here centuries ago. Only one mystery remained in this old library, and that was the mortal who stood unshaken before her. The one mortal who had not once shown her fear. And every night she wondered what it would be like to break that courage, to claim it for herself, to bind it forever to her unending dusk..._
 >
-*But she never asked aloud. She never would.*
+_But she never ordered it. She never would._
 >
-For Pureblood Vampire Lily did not serve. She ruled.
+_For humans must remain free if they are to stay beautiful._
 >
-*What Human Girl Karin did not know was that, from behind an unread tome, she was being watched. Pureblood Vampire Lily had memorized every word within this library centuries ago. Only one mystery remained: the mortal who stood unshaken before her each night without fear.*
 >
-*How many times had she wondered what it would be like to bend that courage, to claim it, to bind it forever to her own unending dusk?*
+_Inside, a single candle trembled in the charged silence, flickering with the unspoken words._
+_Outside, the moon climbed higher, red as spilled wine and twice as intoxicating._
 >
-*But she never said so. She never would.*
->
-*For humans must remain free if they are to stay beautiful.*
->
-*Inside, a single candle flame trembled in the charged silence. It flickered with the weight of words that would never be spoken, yearnings that would never be voiced, and two hearts destined to beat forever out of sync.*
->
-*Outside, the moon climbed higher, red as spilled wine and twice as intoxicating.*
+
+
