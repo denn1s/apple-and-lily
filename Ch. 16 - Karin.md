@@ -66,7 +66,7 @@ I swallowed hard. My throat was dry as sand.
 
 An amused laugh left her lips.
 
-"Don't worry," she said brightly, like she was trying to calm a spooked animal—which, to be fair, she absolutely was.
+"Don't worry," she said brightly, like she was trying to calm a spooked animal. Which, to be fair, she absolutely was.
 
 "I'm still wearing my shorts underneath..."
 
@@ -74,19 +74,21 @@ And then, to my absolute, soul-leaving horror, she reached for the hem.
 
 "See?"
 
-My hand shot out in a lightning-fast blur born of pure survival instinct, and clamped down on her wrist before she could lift the fabric.
+My hand shot out and clamped down on her wrist before she could lift the fabric. Pure survival instinct.
 
 "Stop," I choked out. "I will actually die."
 
-She just laughed again. Musical and utterly merciless. "You're no fun," she pouted, but she released her hand. Assuming a thinking posture instead. 
+She just laughed again. Musical and utterly merciless. "You're no fun," she pouted, pulling her hand back. She shifted into a thinking pose instead.
 
-"Still..." she said, tilting her head, "I feel I'm still missing something for the full *sensei* look."
+"Still..." she said, tilting her head. "I feel like I'm missing something for the full *sensei* look."
 
-"Yeah," I croaked, "about two more layers of clothing."
+"Yeah," I croaked. "About two more layers of clothing."
 
 She gave me a deadpan look. "I'm literally wearing more clothes than I was five minutes ago."
 
-I was subconsciously aware she was actually wearing *more* clothes. But whatever black magic this devil had used had somehow managed to make it worse. 
+She was right. Technically. She was absolutely wearing more clothes.
+
+But somehow, through some cursed devil magic, that made it infinitely worse. 
 
 Her eyes scanned my face, and then they lit up with a terrifying spark of realization. "Oh! I know. Glasses!"
 
@@ -94,19 +96,19 @@ Her hand started moving towards my face.
 
 And I panicked.
 
-I scrambled backward on the bed, my brain screaming at me to retreat. NOW. My hands and feet messing the covers until my back slammed into the wall.
+I scrambled backward across the bed, my brain screaming one word on repeat. *Run. Run. Run.* My hands slipped on the covers. My feet tangled in fabric. I didn't stop until my back slammed against the wall.
 
-Lily followed. She placed one hand on the bed, then the other.
+Lily followed. One hand pressed into the mattress. Then the other.
 
-"Just give it up," she said as she brought one knee up onto the mattress, leaning forward with that same patient smile.
+"Just give it up," she said, bringing one knee onto the bed. She leaned forward with that same patient, devilish smile.
 
-*Huh. She was actually wearing shorts. I could see a white strip of cloth peeking under her skirt.*
+Huh. She actually was wearing shorts. I could see a flash of white fabric just under her—
 
-I slapped myself. 
+*KARIN. EYES UP. NOW*
 
-*Stop.* 
+I jerked my eyes away, but what they found where the straining buttons of her jacket...
 
-I tried to press myself further into the wall, but there was nowhere left to run. Lily was fully on the bed now, crawling towards me, and my gaze was fixed in sheer terror on the straining buttons of her suit.
+Oh god. That was worse.
 
 She laughed again, a soft sound that did terrible things to my heart rate. "Honestly," she said, sitting up. "You are so silly. I'm wearing my gym shirt underneath."
 
@@ -114,7 +116,7 @@ She brought a hand to the third button of her suit.
 
 "Here, I'll show y—"
 
-My hand flew out again, this time clamping down on hers, stopping her fingers just as they began to pull at the button. I had stopped her. I left relief wash over me for a split second. 
+My hand flew out again, this time clamping down on hers, stopping her fingers just as they began to pull. Relief flooded through me for exactly half a second.
 
 And then I realized where my hand was.
 
@@ -122,10 +124,45 @@ It was hovering, by the smallest margin, directly over her chest.
 
 I froze.
 
-After the longest heartbeat in my short life, she whispered.
+After the longest heartbeat in my pathetically short life, she whispered.
 
 "Gotcha."
 
-Her free hand darted forward, and in a flash of movement, my glasses were gone.
+Her free hand darted forward. In one smooth motion, my glasses were gone. 
 
-And the world literally dissolved into a blur.
+And the world dissolved into a blur.
+
+---
+
+
+### The Words She Never Said
+>
+**Pairings:** Karin/Literally The Devil  
+**Tags:** Yuri, Mutual Pining, Dust Allergies, Symbolism With Candles, Angst With Elegant Vocabulary, Author Needs Therapy
+**Summary:** A pair of idiots meet on a castle library.
+>
+*Every night, Human Girl Karin, caretaker of the ancient library, watched the candles with anticipation. When their flames sank to the halfway point, flickering like tired sighs, she knew the hour had come.*
+>
+*Every night, the heavy doors swung open without a sound, and Pureblood Vampire Lily entered with the quiet grace of dawn. Her hair was a golden cascade, radiant as the first light that crowns the morning sky. Her skin was pale as the clouds that linger at evening. Her eyes, a deep crimson, held the fire of the sunset itself. And though her beauty carried the colors of day, her presence commanded the night, drawing every shadow to kneel in silent reverence.*
+>
+*Every night, Human Girl Karin stepped aside in devoted silence, her head bowed low and her hands folded against her chest. As always, she dared not speak. As always, Human Girl Karin pretended not to stare.*
+>
+*And as always, Pureblood Vampire Lily crossed the marble floor without a sound. She reached the same shelf, drew forth the same ancient volume, and opened it to the same worn pages where her gaze remained fixed until the verge of dawn.*
+>
+*And every night, Human Girl Karin wondered in secret what it would be like to surrender, to offer herself fully, to live and be bound within that endless will, within that eternity that belonged only to her.*
+>
+*But she never asked aloud. She never would.*
+>
+For Pureblood Vampire Lily did not serve. She ruled.
+>
+*What Human Girl Karin did not know was that, from behind an unread tome, she was being watched. Pureblood Vampire Lily had memorized every word within this library centuries ago. Only one mystery remained: the mortal who stood unshaken before her each night without fear.*
+>
+*How many times had she wondered what it would be like to bend that courage, to claim it, to bind it forever to her own unending dusk?*
+>
+*But she never said so. She never would.*
+>
+*For humans must remain free if they are to stay beautiful.*
+>
+*Inside, a single candle flame trembled in the charged silence. It flickered with the weight of words that would never be spoken, yearnings that would never be voiced, and two hearts destined to beat forever out of sync.*
+>
+*Outside, the moon climbed higher, red as spilled wine and twice as intoxicating.*
