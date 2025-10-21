@@ -1,6 +1,6 @@
 _Shit, did she notice?_
 
-My heart was trying to hammer its way out of my ribcage. I’d managed to keep a straight face through this whole ridiculous "makeup lesson," but that last part… that was a fatal mistake. 
+My heart was trying to hammer its way out of my ribcage. I’d managed to keep a straight face through this whole ridiculous “makeup lesson,” but that last part… that was a fatal mistake. 
 
 My gaze dropped down to my index finger.
 
@@ -10,43 +10,39 @@ That was way too close.
 
 Why did she have to be so stupidly gorgeous?
 
-I risked a quick peek. Lily had turned her head away and didn't really seem fazed. 
+I risked a glance at her. Lily had turned her head away and didn't really seem fazed. 
 
 _She didn't notice._
 
 Relief crashed through me so hard my shoulders actually dropped.
 
-I capped the lipstick and set it down on the bed, then released a long breath. Air filled my lungs again. My pulse started to slow and the tightness in my chest loosened.
+I capped the lipstick and set it down on the bed, then released a long breath. My lungs slowly remembered how to work. My pulse started to slow, and the tightness in my chest loosened.
 
 _Okay. You survived. Just end the lesson, go back to your desk, and—_
 
 “Alright.”
 
-My entire body locked up. Lily's voice cut through my stupid, five seconds of calm like a blade. When my eyes snapped back to her, I swear I caught, just for a split second, that damned flash of red in her eyes.
+My entire body locked up. Lily's voice cut through my five seconds of calm like a blade.
 
-“Now your turn.” She finished with a wicked grin.
+“Now it's your turn.” She finished with a wicked grin.
 
 My breathing stopped for what had to be the fourth time that day. I swallowed hard against a suddenly dry throat.
 
-This wasn't a lesson. It was a trap. And I had just walked right into it.
+This wasn't a lesson. It was a goddamn trap.
 
 ---
 
-The makeup supplies were still spread across the bed like a surgeon's tray. Foundation. Powder. That tiny brush. The lipstick.
+The makeup supplies were still spread across the bed like tools laid out for an interrogation. Foundation. Powder. That tiny brush. The lipstick.
 
 Instruments of torture, every single one.
 
-I sat on the edge of the mattress where she'd been moments ago, hands gripping my knees. Lily stood before me, studying the collection the way an executioner might appraise a lineup of shiny new blades.
+I sat on the edge of the mattress where she'd been moments ago, hands gripping my knees. Lily stood before me, examining each one like an inquisitor deciding where to start.
 
-My eyes flicked down. To her shirt. To the button. The one she'd undone earlier when she—
+My eyes flicked down. To her shirt. To the buttons—
 
 _Don't look. Don't you dare look._
 
-But from this angle, with her leaning over me, I could see—
-
-_Christ. You're the worst._
-
-Lily picked up the eye shadow brush and it came straight for my face like a knife.
+Lily picked up the eyeshadow brush, and it came straight for my face like a knife.
 
 I squeezed my eyes shut.
 
@@ -54,348 +50,424 @@ _This is what you get for having impure thoughts, Karin._
 
 The bristles touched my eyelid.
 
-And...
+And…
 
-Just a soft sweep of the brush. Gentle. Almost nice, actually. Lily's other hand came up to steady my face, fingers resting against my jaw with some light pressure.
+Just a soft sweep of the brush. Gentle. Almost nice, actually. Lily's other hand came up to steady my face, placing her fingers against my forehead with some light pressure.
 
 _What the hell?_
 
-She wasn't teasing me like I expected. She was just... working.
+She was just… painting.
 
-The brush lifted, then returned. Smooth strokes that barely registered as touch.
+The brush lifted, then returned. Smooth, confident strokes.
 
-I cracked one eye open. Lily's face was inches from mine, but she wasn't looking at me. Not really. She was just examining her work like my face was a freaking half‑finished painting. Her brow furrowed slightly. Her lips pressed into a thin line of concentration.
+I cracked one eye open. Lily's face was inches from mine, but she wasn't looking at me. Not really. Her expression was focused, intent. No hesitation. No trembling hands. She examined my face the way she'd studied those model pieces.
 
 When was the last time I'd seen her face without that dumb, clueless smile?
 
-_No, wait. I remember. The second she picked up a brush, she changed. She became serious, focused, and completely locked in._
+The foundation came next. She squeezed a bit onto her fingertips, then caught my jaw to keep me still.
 
-The foundation came next. She squeezed a bit onto her fingertips, then caught my jaw to keep me still, like I might make a break for it.
+This must be the real Valerie.
 
-_This must be the real Valerie._
+Cool dots landed on my face. Forehead. Cheeks. Chin. Then her fingers started moving, tracing slow circles that spread the cool paste across my skin. 
 
-Cool dots landed on my face. Forehead. Cheeks. Somewhere near my chin. Then her fingers started to move, tracing slow circles that spread the chill across my skin. Too careful. Too gentle. Way too fancy for someone like me.
+This girl had skill. Real, undeniable skill. The kind that didn't just appear. The kind that took years of practice.
 
-This girl had skill. Real, undeniable skill. The kind that didn't just appear. The kind that took years of practice. And still, one kind word could undo her. One little compliment and she would crumble.
+And still, one kind word would undo her. One little compliment and she would crumble.
 
-_Say, who hurt you?_
+_Who hurt you?_
 
-_What made you give up however many years of practice it must have taken to get this good?_
+What made you give up however many years of practice it must have taken to get this good?
 
-She set down the foundation and picked up the powder compact. The large brush swept over my cheeks, to my forehead, down the bridge of my nose. It was soft but relentless. Each stroke adding another layer to her painting. Her focus never wavered.
+She set down the foundation and picked up the powder compact. The large brush swept over my cheeks, my forehead, and down the bridge of my nose. Soft but confident. Each stroke added another layer to her painting. Her focus never wavered.
 
-_Was it in high school? It only took a few words from a group of assholes to make me lock my own door. I wonder what they did to make you put down your brushes._
+Was it in high school? It only took a few words from a group of assholes to make me lock my own door. I wonder what they did to make you put down your brushes.
 
 Lily drew back, studied my face, then came right back in. A bit more here, a tiny fix there. Always one more detail.
 
-Her hand stilled. She reached for the lipstick. The one I had used on her. The soft click of the cap made my pulse jump.
+Her hand stilled. She reached for the lipstick. The one I'd just used on her. The soft click of the cap made my pulse jump.
 
-"Don't move," she whispered. 
+“Don't move,” she whispered.
 
-Her left hand found my chin again, fingers warm against my skin. The lipstick touched my lower lip. It was cool.
+Her left hand found my chin, fingers warm against my skin. The lipstick touched my lower lip. It felt cool.
 
-Her hand moved with absolute confidence, tracing the curve of my mouth with precision. I stayed perfectly still, barely breathing. If she felt even a hint of air against her fingers, she’d know how rattled I was. She turned her wrist, fixing one more detail, while I sat there pretending to be stone.
+Her hand moved with absolute confidence, tracing the curve of my mouth in one smooth motion. No hesitation. No trembling. I held perfectly still, barely breathing.
 
-Her eyes scanned my face one more time with an expression of pure concentration, until she finally pulled the lipstick away.
+If she felt even a hint of air against her fingers, she'd know how nervous I was.
 
-"There," she said softly, almost to herself. "Perfect."
+Skillfully, she painted my lips once again, making small adjustments here and there, until she finally pulled back to check her work. Her eyes scanned my face with that same focused expression.
+
+“There.” She said it softly, almost to herself. “Perfect.”
 
 Then she stepped back.
 
-Her shoulders dropped slightly. The furrow in her brow smoothed out. That familiar smile started to return to her face.
+Her shoulders dropped. The furrow in her brow smoothed out. That familiar, dumb smile started creeping back onto her face.
 
-I still didn’t dare to breathe.
+I still didn't dare breathe.
 
 ---
 
-*Sigh. Why did I even agree to find a mirror?*
+Sigh. Why did I even agree to find a mirror?
 
-I really need to gain some kind of resistance to those puppy-dog eyes.
+I really needed to build up some kind of resistance to those puppy-dog eyes.
 
-I was on my hands and knees, rummagin g through the clutter the bathroom sink. My fingers brushed past old cleaning supplies and a forgotten roll of toilet paper. It had to be here somewhere. I was sure I’d shoved it in the back when I first moved in.
+I was on my hands and knees, rummaging through the clutter under the bathroom sink. My fingers brushed past old cleaning supplies and a forgotten roll of toilet paper. It had to be here somewhere. I was sure I'd shoved it back here when I first moved in.
 
-When was the last time I’d even looked in a mirror? It had to be one of those annoying apps that insists you turn on the camera instead of just using a damn password. Even then, I'd usually just aim it at my face without looking.
+When was the last time I'd even looked in a mirror? Probably one of those annoying apps that insists you turn on the camera instead of just using a damn password. Even then, I'd usually just aim it at my face without actually looking.
 
-I knelt down, reaching into the very back of the under-sink cabinet until my fingers finally brushed against an old towel.
+I reached into the very back of the cabinet until my fingers finally brushed against fabric.
 
-_There you are._
+There.
 
-I pulled it out carefully. Dust clung to the faded blue fabric. I’d shoved it back here when I first moved in… What, six months ago? Had it really been that long?
+I pulled it out carefully. Dust clung to the faded blue towel wrapped around it. I'd shoved this back here when I first moved in… what, six months ago? Had it really been that long?
 
-_Please don't be broken._
+Please don't be broken.
 
-I wiped the surface with the towel, clearing away the grime. The Grand Sage liked to play the kind, all‑knowing dorm mother, but I knew better. If anything here broke, she’d make sure every yen came out of my wallet.
+I wiped the surface with the towel. The Grand Sage liked to play the kind, all-knowing dorm mother, but I knew better. If anything here broke, she'd make sure it came out of my wallet.
 
-What was even the point of checking a mirror, anyway? It was just going to be the same tired face as always; no amount of makeup could fix that. But... after all the effort Lily put in, I guessed the least I could do was take a look.
+I stared at the mirror in my hands.
 
-I drew in a breath, shut my eyes for a second, and lifted the mirror.
+What was even the point? It was just going to be the same tired face as always. No amount of makeup could change that.
+
+But… Lily had spent all that time. She'd been so careful with every detail.
+
+The least I could do was look.
+
+I drew in a breath and lifted the mirror.
+
+My eyes stayed shut for another second. Then I opened them.
 
 For a moment, I just stared. My whole body went still.
 
-_Who is this?_
+Who…?
 
 I leaned closer to the sink, angling the mirror toward the light.
 
 Is this really… me?
 
-My eyes looked sharper. My skin wasn’t as dull. My mouth wasn’t just that tired straight line. I looked different.
+My eyes looked better somehow. Less tired. The dark circles were gone, or at least hidden. My skin didn't have that dull, washed-out look. And my mouth… it actually had shape to it. Color. 
 
-I looked… put together.
+I tilted the mirror slightly. Testing.
 
-I tilted the mirror, testing the angle. Huh. Not… bad. Lily had even fixed my hair, twisting it into a bun that actually looked intentional instead of the usual bird’s nest.
+Huh.
 
-Maybe if I’d put this much effort into my appearance back then—
+Not… bad.
 
-My grip tightened on the mirror. Faces from high school blurred through my head: the whispers, the laughter...
+Actually… not bad at all.
+
+Lily had even fixed my hair at some point. Twisted it into a bun that looked intentional instead of the usual tangled mess I just shoved a pencil into.
+
+I kept staring.
+
+Maybe if I'd put this much effort into my appearance back then—
+
+My grip tightened on the mirror. Faces from high school flashed through my head. The whispers. The laughter.
 
 No.
 
-I sat up straighter, shoving the memory aside. I don’t give a damn what a bunch of shallow snobs thought back then. Never did. That’s not even why it hurt. And it doesn’t matter now anyway.
+I sat up straighter, forcing the memory down. I didn't give a damn what a bunch of shallow snobs thought back then. Never did. That wasn't even why it hurt.
 
-I looked back at the girl in the mirror. Lily really was some kind of magician; she’d made even me look halfway decent. It hadn’t even taken long.
+And it doesn't matter now anyway.
 
-Maybe… if she helped me again, I could try leaving the dorm.
-Feel the sun again on my skin. Just once.
+Lily really was some kind of magician. She'd made even me look halfway decent. It hadn't even taken that long.
+
+Maybe… if she helped me again…
+
+I could try leaving the dorm. Feel the sun on my skin again. Just once.
+
+My smile faded.
 
 If only it were that easy.
 
-It wasn't just about appearance. I knew that. But as I stared at the girl in the mirror, I realized something else.
+It wasn't just about appearance. I knew that. But still… for a second there, I'd actually hoped it could be.
 
-When did she start smiling?
+I glanced back at the mirror one more time.
+
+The girl looking back at me was smiling again.
 
 ---
 
-I stepped out of the bathroom still trying to process that I’d spent the last ten minutes smiling at my own reflection like an idiot.
+I stepped out of the bathroom still processing how I'd just spent the last ten minutes smiling at my own reflection like an idiot.
 
 The good mood lasted about three seconds.
 
-My eyes found the desk... and the warmth in my chest flash‑froze.
+My eyes found the desk… and the warmth in my chest flash‑froze.
 
 Lily was leaning over my keyboard, head tilted in curiosity, eyes glued to the monitor.
 
 The monitor that was on.
 
-The monitor that had my latest fanfic draft open.
+The monitor that had my fanfic draft open.
 
 *Oh no. Oh no no no.*
 
-“Oh, you’re back!” she said brightly, turning toward me. “I was just wondering—”
+“Oh, you're back!” she said brightly, turning toward me. “I was just wondering—”
 
 She never got to finish. I lunged.
 
-My only thought was to turn off the monitor—save whatever scraps of dignity I had left.  
-What I hadn’t accounted for was the chair.
+My only thought was to turn off the monitor—save whatever scraps of dignity I had left.
 
-My foot caught one of the rolling legs, sending the chair shooting sideways. I stumbled, my arms flailing for balance. My right hand slapped against the desk, sending a cascade of loose papers exploding into the air. My left hand, in a desperate attempt to stay upright, grabbed the first solid thing it could find: Lily's arm.
+What I hadn't accounted for was the chair.
 
-She let out a surprised yelp as I pulled her off-balance with me. For a surreal second, we were locked in a clumsy, spinning dance of doom. Surrounded by a blizzard of fluttering paper, I could see her laughing. 
+My foot caught one of the rolling legs, sending the chair shooting sideways. I stumbled, arms flailing for balance. My right hand slapped the desk, sending loose papers exploding into the air. My left hand, desperate to stay upright, grabbed the first solid thing it could find.
+
+Lily's arm.
+
+She let out a surprised yelp as I pulled her off balance. For one surreal second, we were locked in a clumsy, spinning dance of doom. Surrounded by a blizzard of fluttering paper. 
+
+I could see her laughing.
 
 We switched positions somehow. Her arm went around my shoulders. My hand braced against something soft.
 
 Then gravity won.
 
-We went down together in a tangled heap. I seemed to have landed in a cushion, so it didn't hurt, but everything went dark.
+We went down in a tangled heap. I hit a cushion hard enough to knock the wind out of me. It didn't hurt, but everything went dark.
 
 Where—what—?
 
-Warmth pressed against me, followed by the rustle of clothing and a breathy laugh. Lily shifted, sitting up slowly, and the darkness lifted as she moved. Then right above me, her weight resting across my thighs.
+Weight pressed down on me. Warmth. The rustle of clothing and a breathy laugh right above me. Lily shifted, sitting up slowly, and the darkness lifted as she moved off my face.
 
-I blinked at the ceiling, my brain lagging several seconds behind everything else.
+She was sitting on my thighs.
+
+I blinked up at the ceiling, my brain lagging several seconds behind reality.
 
 For half a heartbeat I thought she might be hurt, but then she tilted her head back and laughed.
 
-“This is just like when we first met, isn’t it?” she said, sounding entirely too pleased for someone who’d just been body‑slammed.
+“This is just like when we first met, isn't it?” she said, sounding way too pleased for someone who'd just been body-slammed.
 
-_What just happened? Why is she sitting on my—that stupidly beautiful smile—wait, no, can't focus on that right now—_
+That stupidly beautiful smile—wait, no, can't focus on that right now—
 
-My eyes finally caught up with my brain and focused on her face. And then I saw it.
+My eyes finally caught up with my brain and focused on her face.
 
-_Oh no._
+And then I saw it.
 
-There, on her right cheek, was a perfect, bright red print of my lips.
+Oh no.
 
-_When the hell—how—_
+There, on her right cheek… was a perfect, bright red print of my lips.
+
+When the hell—how—
 
 “But you fell by yourself that time,” Lily went on, completely oblivious. “You can be really clumsy sometimes.”
 
-It must have happened when we fell.
+It must have happened when we fell. The lipstick she'd just put on me. My face pressed against hers in the chaos.
 
-_I didn’t even notice!_
+I didn't even notice!
 
-“Say, did you find that mirror?” Lily asked, tilting her head just enough to show off the kiss‑mark. “I’d like to check how my own makeup ended up.”
+“Say, did you find that mirror?” Lily asked, tilting her head, giving me a perfect view of the kiss mark. “I'd like to check how my own makeup ended up.”
 
-*She hasn’t noticed. She’s going to see it. She’s going to look in the mirror and—*
+She hasn't noticed yet.
 
-“Wait!” I shot upright—she was still sitting on my thighs—and before my brain caught up, my hands were already on her face. “You have something on your—”
+If she sees it in a mirror—
 
-My thumbs moved on instinct, scrubbing at the spot in frantic circles. Come on, come on, come on…
+“Wait!” I shot upright. She was still sitting on my thighs. My hands went to her face before my brain could catch up. “You have something on your—”
 
-The mark quickly faded, leaving only the warmth of her skin and my impending death by embarrassment.
+My thumb pressed against the mark and swiped hard across her cheek. Please work, please work—
 
- let out a sigh.
+The red smeared, then faded.
+
+Oh thank god.
+
+Crisis averted.
 
 And then my brain caught up.
 
 Wait.
 
-I froze. My hands were still cupping her face.
+I froze. My hands were still cupping her face. She was still sitting on my lap. Our faces were inches apart.
 
-She was still on my thighs.
+Her eyes were huge. Her hair caught the light in flecks of gold. Her lips were still bright red—the lipstick I'd put on her myself.
 
-Our faces were inches apart. 
+I was holding her face in my hands.
 
-Her eyes were huge, and her hair was made up of flecks of bright gold that caught on the light. Her lips were still bright red from the makeup I myself had applied. 
-
-I was holding her.
-
-She was trapped. I could easily just—
+She couldn't move. I could just lean forward and—
 
 No no no—
 
-My eyes squeezed shut. I released her as if she were on fire, pulling my hands back and holding them up in surrender. "Ehm… uh… S-Sorry…" I stammered, my voice shaking. 
+I released her like she was on fire and jerked my hands back in surrender. “S-Sorry—I didn't—” My voice came out strangled. “There was just… —on your cheek—”
 
-I let my hands hover for a second, breathing hard, the echo of her warmth still clinging to my palms. Slowly, I lowered them, letting them fall into my lap.
-
-I could see they were covered in a smear of foundation.
+I let my hands drop to my lap, breathing hard. My palms still tingled with the warmth of her skin… but there was something more. Foundation. My hands were covered in smeared foundation.
 
 I risked a glance at her face.
 
 And my brain short-circuited all over again.
 
-The lipstick was gone, but in its place, a delicate pink was blooming across her cheeks. A real blush. 
+Where I'd wiped away the lipstick mark, the thick layer of makeup was gone too. And underneath—
 
-She was looking away, and she brought a hand up to push a strand of hair behind her ear, partially hiding her face.
+Pink. A real, honest-to-god blush spreading across her cheeks.
 
-"I-It's alright…" she stammered, her voice suddenly small and uncertain.
+She turned her head away, bringing a hand up to tuck some hair behind her ear. Hiding her face.
 
-_Wait. Is she—flustered? Like actually flustered?_
+“I-It's alright…” Her voice came out uncertain. Shaky.
 
-The goddess, the predator, the infuriatingly perfect normie… was blushing. She was nervous.
+Wait.
 
-I had made her nervous.
+Is she—flustered?
 
----
+Like, actually flustered?
 
-The charged silence hung in the air between us for what felt like a minute, but was most likely just a couple of seconds. Lily was the first to move, pushing herself gracefully to her feet and brushing off her clothes.
+The goddess. The predator. The infuriatingly perfect girl who'd been teasing me nonstop for weeks—
 
-"Oh, look at the time," she said, sounding a bit too bright. "I should... I'll go get us something to eat."
+Was blushing.
 
-The lingering confidence I had felt this day, it was all still there, and I made a decision on the spot. 
+She was nervous.
 
-"Wait," I said, calmer than I expected. Lily stopped, turning back to me.
-
-"Let's order food today." I took a deep breath. I stood up, meeting her surprised gaze.
-
-"Then... I'll go pick it up at the door." I let the words hang in the air for a second before adding the most important part.
-
-"Alone."
-
-_If it's today... I think I can do it._ 
-
-It was fine. I’d done this hundreds of times before I came here. It's just a hallway. Just a door. Lily does that and more every day. 
+I made her nervous.
 
 ---
 
-We waited for the food in a quiet tension. I sat at the kotatsu, trying to keep my breathing even. Lily was gathering the scattered pieces of the Riri-hime model. I watched her hands as she worked. They were shaking slightly.
+The silence hung between us. A minute, maybe. Or just a few seconds that felt longer.
 
-_Is it still from before...? Or something else?_
+Lily moved first, pushing herself to her feet and brushing off her clothes. Not quite as graceful as usual.
 
-Usually, she’d be disassembling and reassembling the parts while we waited for food, but today, she was just putting them straight back in the box.
+“Oh, look at the time.” Her voice came out too bright, too cheerful. “I should… I'll go get us something to eat.”
 
-The low buzz of my phone on the table cut through the silence like a knife.
+She was already turning toward the door.
 
-Lily’s hand jerked, and a small plastic piece clattered onto the floor.
+“Wait.”
 
-"It must be them," I said, keeping my voice steady. It was time.
+The word came out calmer than I expected. Lily stopped, glancing back at me.
 
-"W-will you be alright?" Lily's voice was tight.
+I stood up slowly, meeting her eyes.
 
-I just nodded, then walked the few steps to my bedroom door. 
+“Let's order food today.” I took a breath. “Then… I'll go pick it up at the door.”
 
-The door was already open. I hadn't even noticed. When had—
+Her eyes widened slightly.
 
-I turned back to complain about Lily leaving it open again, but the words died when I saw her. She was unsteady on her feet, following a few steps behind. The worry was written all over her face.
+“Alone,” I added.
 
-_She's more nervous than I am._
+The word hung in the air between us.
+
+If it's today… I think I can do it.
+
+It was just a hallway. Just a door. I'd done this many times before. Lily did it every single day without thinking twice.
+
+My hands were shaking a little, but I kept them at my sides.
+
+“If… if that's okay.”
+
+---
+
+We waited in silence. I sat at the kotatsu, trying to keep my breathing even. Lily was gathering the scattered pieces of the Riri-hime model from the table.
+
+I watched her hands as she worked. They were shaking.
+
+Is it still from before…? Or is she worried about me?
+
+Usually, she'd be disassembling and reassembling the parts while we waited, but today, she was just putting them straight back in the box.
+
+The low buzz of my phone cut through the quiet.
+
+Lily flinched. A small plastic piece slipped from her fingers and clattered to the floor.
+
+“It's them,” I said, keeping my voice steady.
+
+It was time.
+
+“Will you be okay?” Lily's voice came out tight and strained.
+
+I nodded. Didn't trust myself to say more.
+
+I walked the few steps to my bedroom door. Each one felt heavier than the last.
+
+The door was already open.
+
+I hadn't even noticed. When had she—
+
+I turned back to complain about her leaving it open again, but the words caught in my throat.
+
+Lily was on her feet, a few steps behind me. Unsteady. Her hands were clasped together, knuckles white. The worry on her face was so raw it almost hurt to look at.
+
+She's more nervous than I am.
+
+Something warm spread through my chest.
 
 I turned back to the threshold without saying anything.
 
 Time to do this.
 
-I braced myself. Mustered every bit of determination I had. Got ready for the buzzing sound, the twisting walls, the panic that would try to drag me under.
+I braced myself. I mustered every bit of determination I had. Ready for the buzzing sound, the twisting walls, the panic that would try to drag me under.
 
-_It will be fine. If it is today, it will be fine._
+It will be fine. If it's today, it will be fine.
 
-With another breath I stepped out.
+I took a breath and stepped out.
 
-My body was tensed hard, waiting for the shock.
+My body tensed, waiting for the shock.
 
-And then...
+And then…
 
 Nothing.
 
-I stood there, one foot in the hallway, waiting for my lungs to seize up. For the world to tilt. For the roaring in my ears to start.
+I stood there, one foot in the hallway, waiting for my lungs to seize. For the world to tilt. For the roaring in my ears to start.
 
-Nothing happened. 
+Nothing happened.
 
-_Huh._
+Huh.
 
-I took another tentative step. Then another.
+I took another step. Then another.
 
-It was just a hallway. The same old, boring, vaguely clean hallway I'd seen a hundred times before. Beige walls. Fluorescent lights. The faint smell of cleaning supplies.
+It was just a hallway. The same old boring hallway I'd seen a hundred times before. Beige walls. Fluorescent lights. That odd smell of cleaning supplies.
 
 That's it.
 
-I turned slightly, looking back toward Risa's door at the far end. That distance that had felt impossibly vast just weeks ago.
+I glanced back toward Risa's door at the far end. That distance that had felt impossibly vast just days ago… It didn't seem like such a big deal right now.
 
-It didn't seem like such a big deal right now.
+Huh.
 
-_Huh._
+I kept walking. Past Lily's door. Down toward the entrance. Each step felt… normal. Unremarkable.
 
-I kept walking. Past Lily's door. Down the hallway toward the dorm entrance. Each step felt normal. Unremarkable.
+My hand hesitated on the handle.
 
-My hand hesitated on the handle for only a second before I pulled it open in one motion.
+The entrance to the dorm. The door to the outside world. The one I hadn't opened in months.
 
-_It's okay, just open it in one motion._
+*Just open it in one motion, Karin. Before the fear catches up.*
 
-Warmth hit my skin first. Real warmth, not the recycled air from dorm. Fresh air filled my lungs. Actual outside air that didn't taste stale. It felt clean and cool.
+I pulled it open.
 
-The light was still too bright so I kept my gaze low, focused on the floor just outside the threshold.
+Warmth hit my skin first.
+
+Real warmth. Sunlight. The kind that seeped into your skin. The one that made you feel alive.
+
+Fresh air filled my lungs. Outside air that didn't taste stale or trapped. It was cool and clean.
+
+God, I'd forgotten what this felt like.
+
+The light was too bright, so I kept my gaze low. Focused on the concrete just beyond the threshold. The paper bag with our lunch was just sitting there.
 
 Looking up at the distance might be too much, but this—standing here, feeling the warmth, breathing real air—this was good enough for today.
 
-I bent down and picked up the paper bag of fast food sitting on the doorstep.
+This was enough for today.
 
-Then I turned around and started walking back.
+I bent down and picked up the bag. Then I turned around and walked back inside.
 
-_Huh._
+One step at a time.
 
-I bean walking back down the hallway, processing what had just happened. I could see my door open at the far end with Lily waiting in the doorway.
+I started walking down the hallway, still processing what had just happened. My door was open at the far end. Lily stood in the doorway, waiting.
 
-I felt... good. Accomplished, even.
+I felt… good. Accomplished, even.
 
-"That wasn't too bad—"
+“That wasn't too bad—”
 
-The words caught in my throat.
+The words died in my throat.
 
 I stopped walking.
 
-Lily's fists were white. Bone white. Her nails had dug straight through the skin of her palms and a sliver of blood ran down the side of her hand.
+Lily's fists were clenched so tight her knuckles had gone bone white. Her nails had dug straight through her palms. I could see thin lines of blood running down the sides of her hands.
 
-Her shoulders were locked. Trembling. Her eyes were wide, fixed on me. They looked as if she hadn't blinked for a full minute. Her breathing was shallow and rapid.
+Her shoulders were locked up. Trembling. Her eyes were fixed on me. Unblinking, like she'd been frozen there the entire time. Her breathing came in shallow, rapid bursts.
 
-_She was..._
+Like all my fear had been passed to her instead.
 
-Understanding crashed into me.
+She was…
 
-_She was scared._
+Oh.
 
-This whole time I'd been walking down that hallway, Lily had been standing here. Watching. Unable to follow. Unable to help.
+Understanding washed over me, warm and overwhelming.
 
-Just waiting.
+She'd been terrified.
 
-_She was terrified._
+For my sake.
 
-_For me. For my sake_
+The paper bag crinkled in my grip as my hands tightened around it. My throat felt tight, but my heart felt light. I knew I couldn't have done it alone. Not without her here, holding all that fear so I didn't have to. 
 
-The paper bag crinkled in my grip. My throat felt tight, but my heart felt light. 
+To be seen. To be cared for. To be worried for. So this is how that feels.
+
+
