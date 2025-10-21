@@ -159,3 +159,198 @@ _Outside, the moon climbed higher, red as spilled wine and twice as intoxicating
 >
 
 
+Warmth. That was the first thing that registered in my fried brain. Something soft and warm against the top of my head.
+
+Wait. Warm?
+
+My eyes cracked open. I tried to sit up—because lying here was definitely not helping the situation—but gentle pressure on my forehead stopped me, pushing me back down.
+
+W-Where—?
+
+Then, familiar weight settled on my nose. The blurred ceiling sharpened as my glasses slid into place. Right. Lily's room.
+
+"You're awake," she said.
+
+I adjusted the frames, trying to pull together whatever scraps of dignity I had left. "G-Gave up on the teacher look already?"
+
+"Just the glasses." Her voice had gone sheepish. "I got dizzy."
+
+She was still wearing that whole ridiculous teacher costume, but whatever terrifying energy she'd been radiating before had completely evaporated. Now she just looked... kind of awkward, honestly.
+
+I could work with awkward. Awkward was manageable.
+
+She shifted slightly, looking down at me. "So, Student Karin," she said, that playful lilt sneaking back into her voice. "How are you doing in your other classes?"
+
+I thought about her question for a while. 
+
+The truth? This university doesn't actually care if you show up. Everything goes through the online portal, which is the only reason I'm still enrolled and not completely screwed. 
+
+But it's not like it's easy. I'm basically teaching myself from whatever the teachers post online and hoping I can piece together what the hell is going on. Though, to be fair, Lily's been bringing me notes. When she actually goes to class herself, anyway. Which... hasn't been as often lately. 
+
+"Not too bad," I mumbled.
+
+Her playful expression softened, replaced by... concern? "Are you having any issues with… not being able to leave your room?" She asked. 
+
+_Oh._
+
+That was it, wasn't it? The whole absurd costume. The teacher role-play. All of it was just her roundabout way of asking this one question without making it feel like an interrogation.
+
+She was worried. 
+
+Doing all this just for someone like me was stupid. Completely, utterly stupid. 
+
+And somehow... It was very much her.
+
+For once, she didn't feel like some untouchable goddess stumbling into my disaster of a life. She just felt like... a girl. A weird, awkward girl who didn't know how to ask if I was okay without accidentally stepping on a landmine. 
+
+I put an arm over my face to hide the blush that was starting to form.
+
+"I'm doing fine," I said, and it was mostly true. "This university doesn't really care about attendance. I don't know what I'll do about finals, though."
+
+"Mhmm," she hummed, a noncommittal sound that told me she absolutely wasn't going to push it.
+
+I sat up. "What about you? You've been skipping a lot lately."
+
+A small, proud smile touched her lips. "I do, don't I?" she said, not a hint of shame in her voice. 
+
+I almost laughed. Here she was, acting like cutting class was some kind of achievement. It was kind of funny actually, seeing this perfect princess type so damn pleased with herself for being a delinquent.
+
+"Lily-sensei demands a report," she said, tapping the laptop screen. "English. Your grade?"
+
+"I should be good for at least a B+," I said, straightening up.
+
+"That's really good!" She looked genuinely impressed, then her face fell. "That makes sense, you like writing." A heavy sigh. "I'm hoping for a C-."
+
+I blinked. Wait, seriously?
+
+I was actually... better at something than her? I'd just assumed she'd be crushing every class while I scraped by.
+
+Huh.
+
+"What about Calculus?" she asked, perking up immediately. Her eyes actually lit up. "That's one of my best classes. Almost an A."
+
+I stared at her. "Wait, really? Damn. I'm barely passing that one."
+
+She was... nothing like I'd imagined. In a weird way.
+
+A smug little grin spread across her face. "I'll be happy to teach you one day."
+
+My brain helpfully supplied an extremely detailed image of her leaning over my shoulder, explaining derivatives while wearing that stupidly short skirt—
+
+Nope. Not going there.
+
+"Yeah, yeah," I muttered, pushing the thought away. "We'll see."
+
+I hesitated, then forced myself to ask the question that had been gnawing at me for weeks. "What about... Chemistry?"
+
+My voice came out smaller than I meant it to. "I haven't been able to submit any of the lab work. I don't know if I can even pass without—"
+
+"Oh, don't worry about it," she cut in, waving a hand dismissively. "I already put you down as part of my lab group. You're covered."
+
+I froze. "You... what?"
+
+"For the group assignments," she said, like it was the most normal thing in the world. "I just wrote your name down. It's fine."
+
+My throat felt tight. 
+
+"Though don't expect a C in that class," she added with a grimace. "I'm not exactly doing great myself."
+
+She said it so casually. Like all she was doing for someone like was just normal. Not worth mentioning.
+
+But it wasn't nothing. Not to me.
+
+"Th-Thank you," I managed. I hated how small my voice sounded. "For… you know. The notes. And the… lab thing. All of it."
+
+She looked at me then, and her face lit up with that bright smile that made my chest feel warm.
+
+"It's nothing," she said.
+
+But it wasn't. It really wasn't.
+
+"Programming, though..." She shuddered.
+
+I looked at the laptop screen and remembered Risa's program. "The absolute worst," I agreed.
+
+"Pure suffering," she agreed.
+
+We looked at each other for a second, then a laugh escaped her lips, and a second later, one bubbled up out of my own chest. It felt strange, hearing the sound of my own laughter mixing with hers in the quiet room.
+
+The sound of our combined laughter wasn't the sound of some weirdo laughing with a goddess. It was just... two girls. Maybe, she really was just as lost as I was. And maybe... maybe I could get used to this.
+
+---
+
+The rest of the afternoon passed in a nice silence.
+
+I'd vetoed Lily's initial suggestion of ordering cake for dinner—again—and convinced her to get some actual food. We settled on Chinese takeout. Well, I settled on it. She pouted for a solid three minutes until I promised we'd get dessert after.
+
+The food arrived in white takeout boxes. It was fried rice. Not super healthy, but better than pure sugar. Lily battled her chopsticks for a solid five minutes before I slid her a spare fork, which she took it with a grateful smile.
+
+We worked through assignments after eating, Risa's program doing most of the actual coding while we pretended to supervise. Lily's notes were surprisingly helpful, despite her now knowing most of what she was writing down. 
+
+When the sky outside had started to darken, I finally gathered my things. My back protested as I stretched, muscles stiff from hours of sitting on Lily's bed.
+
+"Are you sure you don't want me to walk with you?" Lily asked from the bed, her voice laced with genuine concern.
+
+My chest tightened. 
+
+Which, fair. A week ago, I couldn't even make it to the door without freezing.
+
+"I'll be fine," I said, and for the first time in a long time, the words didn't feel like a complete lie.
+
+Her brow furrowed slightly, unconvinced.
+
+"I need to get used to it," I added, and those were my honest thoughts.
+
+"Message me as soon as you get there, okay?" she insisted, sitting up.
+
+The concern in her voice made felt warm. She actually cared.
+
+
+"I will," I said, and despite the nervous flutter in my stomach, my smile widened. "Promise."
+I walked to her door, feeling a strange sense of accomplishment. It had been a good day. A really good day. I reached for the doorknob, ready to head back to my own room.
+
+My hand froze mid-air.
+
+There, hanging from the outside of the door—visible to anyone walking down the hallway—was a single, pure white sock.
+
+My brain stalled.
+
+A sock. On the door. The universal dorm signal for "do not disturb, occupants are... occupied."
+
+Oh no.
+
+Oh *no*.
+
+We'd been in here for hours. With the sock on the door. The *entire time*.
+
+My head turned with the slow, mechanical precision of someone whose neck had rusted solid. I looked back at Lily.
+
+She was sitting on her bed, hands folded in her lap, beaming at me with the most angelic, infuriatingly innocent smile I had ever seen in my entire life.
+
+"Lily," I said slowly, my voice barely above a whisper. "Why the hell is there a sock on your door?"
+
+"Oh!" Her eyes lit up. "Risa said it's polite to put it up when you have visitors. I didn't forget."
+
+She said it with such genuine earnestness that I couldn't tell if she was completely clueless about what it actually meant, or if she was the most devious person I'd ever met.
+
+My face was on fire. "That's... that's not exactly what that means..."
+
+"It's not?" She tilted her head, the picture of innocent confusion.
+
+I was going to die. Right here. In Lily's doorway. Death by mortification.
+
+_She has NO IDEA what that means._
+
+A cold dread, far more terrifying than any demon in a miniskirt, washed over me. My hand fumbled for my phone. I hadn't checked it all day.
+
+The screen lit up.
+
+Twenty missed calls.
+
+All from Risa.
+
+_Oh no._
+
+I looked at Lily one more time. Still smiling. Completely, blissfully unaware of the social disaster she'd created.
+
+Risa is never, *ever* going to let me live this down...
