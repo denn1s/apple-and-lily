@@ -6,43 +6,41 @@ Looking back, I wonder if I could say I lived a good life. Probably not. It defi
 
 Not that it matters now.
 
-The blood drained from my face and a deep chill rushed in, spreading thin ice from my neck to my palms before melting into cold sweat. 
+The blood drained from my face, and a deep chill rushed in, spreading thin ice from my neck to my palms before melting into cold sweat. 
 
-I wanted to look away, to bolt, but I couldn't. My gaze froze on the walking catastrophe responsible for my impending demise. My hands wouldn't stop shaking.
+I wanted to look away. Bolt. Run. Anything. But I couldn't move. My gaze locked on the walking catastrophe responsible for my impending fall. My hands wouldn't stop shaking.
 
-"Well," she said, her voice impossibly sweet. "Since we can't seem to focus..." 
+“Well,” she said, her voice impossibly sweet. “Since we can't seem to focus…” 
 
-Then she laughed.
+I swallowed. Then I heard her laugh.
 
-And that laugh... That damned laugh was the sound of every lock in hell simultaneously clicking open. Making way for my condemned soul.
+And that laugh… That damned laugh was the sound of every lock in hell clicking open at once. Making way for my condemned soul.
 
 The devil was wearing a deceptively formal suit.
 
-It professional enough at first glance. Almost innocent. But the top buttons were undone, revealing a deliberate strip of pale skin that my traitorous eyes refused to stop tracking.
+It looked professional at first glance. Almost innocent. But the top buttons were undone, showing a strip of pale skin that my eyes refused to stop tracking.
 
 But that wasn't what was going to kill me.
 
 No.
 
-That was the goddamn mini skirt.
+It was the goddamn mini skirt.
 
-"I thought I should try calling on *Lily-sensei~*" 
+“I thought I should try calling on *Lily-sensei~*” 
 
-That name rolled off her tongue in an alluring purr that seemed to vibrate through my chest.
+The name rolled off her tongue in an alluring tone that vibrated straight through my chest.
 
 _Yuri-sensei…_
 
-*Maybe she’d been the real teacher all along.*
-
 She held a brush in one hand, tapping it slowly against her open palm. _Tap. Tap… Tap._
 
-*And she could teach me whatever she wanted—*
+*She could teach me whatever she wanted—*
 
 No, stop. I shook my head, snapping out of the trance just long enough to meet her gaze.
 
-They were blood red.
+Her eyes were blood red.
 
-But maybe dying by yuri wasn’t the worst way to go.  {consider removing this line or joining it with the teach me line}
+… Maybe dying by yuri wasn't the worst way to go.
 
 ---
 
@@ -50,104 +48,111 @@ She began to walk. Slowly. Like she knew exactly what she was doing.
 
 My eyes locked on the hem of that stupidly short skirt. With each step, the fabric shifted. Lifted. Just a fraction.
 
-*Thump.* One Step.
+*Thump.* One step.
 
 *Thump.* Another.
 
 *Thump.* One more.
 
-I couldn't have looked away if my life depended on it.
+I couldn't look away. Not even if my life depended on it. And at this moment, I was sure that was a fatal mistake.
 
-Then she stopped.
+She stopped.
 
-She stood in front of me. Close enough that I had to tilt my head back just to see her face. Close enough that there was no mistaking where my eyes had been locked.
+Right in front of me. Close enough that I had to tilt my head back to see her face. Close enough that there was no mistaking where my eyes had been.
 
-I swallowed hard. My throat was dry as sand.
+I swallowed. My throat was as dry as sand.
 
-An amused laugh left her lips.
+She laughed. Amused.
 
-"Don't worry," she said brightly, like she was trying to calm a spooked animal. Which, to be fair, she absolutely was.
+“Don't worry,” she said, all bright and innocent. Like she was calming a spooked animal. 
 
-"I'm still wearing my shorts underneath..."
+Which, fair. I was.
 
-And then, to my absolute, soul-leaving horror, she reached for the hem.
+“I'm still wearing my shorts underneath…”
 
-"See?"
+And then—to my absolute, soul-leaving horror—she reached for the hem.
 
-My hand shot out and clamped down on her wrist before she could lift the fabric. Pure survival instinct.
+“See?”
 
-"Stop," I choked out. "I will actually die."
+My hand shot out and clamped down on her wrist. Pure reflex.
 
-She just laughed again. Musical and utterly merciless. "You're no fun," she pouted, pulling her hand back. She shifted into a thinking pose instead.
+“Stop,” I choked out. “I will actually die.”
 
-"Still..." she said, tilting her head. "I feel like I'm missing something for the full *sensei* look."
+She just laughed again. Musical and utterly merciless. “You're no fun,” she pouted, pulling her hand back. She shifted into a thinking pose instead.
 
-"Yeah," I croaked. "About two more layers of clothing."
+“Still…” she said, tilting her head. “I feel like I'm missing something for the full *sensei* look.”
 
-She gave me a deadpan look. "I'm literally wearing more clothes than I was five minutes ago."
+“Yeah,” I croaked. “About two more layers of clothing.”
 
-She was right. Technically. She was absolutely wearing more clothes.
+She gave me a deadpan look. “I'm literally wearing more clothes than I was five minutes ago.”
 
-But somehow, through some cursed devil magic, that made it infinitely worse. 
+If that was true, technically, _technically_, she was wearing more clothes.
 
-Her eyes scanned my face, and then they lit up with a terrifying spark of realization. "Oh! I know. Glasses!"
+And yet somehow, through some cursed devil magic, that made it infinitely worse.
 
-Her hand started moving towards my face.
+My eyes betrayed me, dropping back to that damn skirt like they were magnetized.
+
+Her eyes scanned my face, and then they lit up with a terrifying spark of realization. “Oh! I know. Glasses!”
+
+Her hand started moving toward my face.
 
 And I panicked.
 
-I scrambled backward across the bed, my brain screaming one word on repeat. *Run. Run. Run.* My hands slipped on the covers. My feet tangled in fabric. I didn't stop until my back slammed against the wall.
+I scrambled backward across the bed, my brain screaming one word on repeat. 
+
+*Run.* 
+
+My hands slipped on the covers. My feet tangled in fabric. I didn't stop until my back hit the wall.
 
 Lily followed. One hand pressed into the mattress. Then the other.
 
-"Just give it up," she said, bringing one knee onto the bed. She leaned forward with that same patient, devilish smile.
+“Just give it up,” she said, bringing one knee onto the bed. She leaned forward with that same patient, devilish smile.
 
-Huh. She actually was wearing shorts. I could see a flash of white fabric just under her—
+Huh. She actually was wearing shorts. I could see a flash of white fabric just under the—
 
-*KARIN. EYES UP. NOW*
+*KARIN. EYES UP. NOW.*
 
-I jerked my eyes away, but what they found where the straining buttons of her jacket...
+I jerked my gaze away, but it landed on the straining buttons of her blazer instead.
 
 Oh god. That was worse.
 
-She laughed again, a soft sound that did terrible things to my heart rate. "Honestly," she said, sitting up. "You are so silly. I'm wearing my gym shirt underneath."
+She laughed again. It was soft but deadly. “Honestly,” she said, sitting up. “You're so silly. I'm wearing my gym shirt underneath.”
 
-She brought a hand to the third button of her suit.
+She brought a hand to the third button.
 
-"Here, I'll show y—"
+“Here, I'll show y—”
 
-My hand flew out again, this time clamping down on hers, stopping her fingers just as they began to pull. Relief flooded through me for exactly half a second.
+My hand shot out. Clamped down on hers. Stopped her fingers right as they touched the button. Relief flooded through me for exactly half a second.
 
-And then I realized where my hand was.
+Then I realized where my hand was.
 
-It was hovering, by the smallest margin, directly over her chest.
+Hovering. Directly over her chest. By the smallest margin.
 
-I froze.
+I froze cold, but the heat beside my fingers was unmistakable.
 
-After the longest heartbeat in my pathetically short life, she whispered.
+After the longest heartbeat in my pathetically short life, she whispered:
 
-"Gotcha."
+“Gotcha.”
 
 Her free hand darted forward. In one smooth motion, my glasses were gone. 
 
 And the world dissolved into a blur.
 
-
 ### The Words She Never Said
 >
 **Pairings:** Karin/Literally The Devil
 **Tags:** Yuri, Mutual Pining, Dust Allergies, Symbolism With Candles, Angst With Elegant Vocabulary, Author Needs Therapy
-**Summary:** A pair of idiots meet on a castle library.
+**Summary:** A pair of idiots meet in a castle library.
 >
 _Human Girl Karin pretended not to stare as Pureblood Vampire Lily crossed the marble floor. That golden cascade of hair caught the candlelight like captured dawn. Those crimson eyes held sunset's fire. And that pale skin was like evening clouds. A beauty that held day's colors captive yet commanded night itself._
 >
-_Every night Pureblood Vampire Lily would draw forth the same ancient volume from the same shelf. And every night, Human Girl Karin wondered what it would be like to surrender, to be bound within that endless will, to share that eternity which belonged only to her..._
+_Every night, Pureblood Vampire Lily would draw the same ancient volume from the same aging shelf. And every night, Human Girl Karin wondered what it would be like to surrender, to be bound within that endless will, to share that eternity that belonged only to her…_
 >
 _But she never asked for it. She never would._
 >
 _For vampires must stay fleeting if they are to remain eternal._
 >
-_What the human girl did not know was that from behind an unread tome, she was being watched. The vampire had memorized every word here centuries ago. Only one mystery remained in this old library, and that was the mortal who stood unshaken before her. The one mortal who had not once shown her fear. And every night she wondered what it would be like to break that courage, to claim it for herself, to bind it forever to her unending dusk..._
+_What the human girl did not know was that from behind an unread tome, she was being watched. The vampire had memorized every word here centuries ago. Only one mystery remained in this old library, and that was the mortal who stood unshaken before her. The one mortal who had not once shown her fear. And every night she wondered what it would be like to break that courage, to claim it for herself, to bind it forever to her unending dusk…_
 >
 _But she never ordered it. She never would._
 >
@@ -155,158 +160,164 @@ _For humans must remain free if they are to stay beautiful._
 >
 >
 _Inside, a single candle trembled in the charged silence, flickering with the unspoken words._
+>
 _Outside, the moon climbed higher, red as spilled wine and twice as intoxicating._
 >
-
 
 Warmth. That was the first thing that registered in my fried brain. Something soft and warm against the top of my head.
 
 Wait. Warm?
 
-My eyes cracked open. I tried to sit up—because lying here was definitely not helping the situation—but gentle pressure on my forehead stopped me, pushing me back down.
+My eyes cracked open. I tried to sit up—because lying here was definitely not helping the situation—but gentle pressure on my forehead stopped me and pushed me back down.
 
 W-Where—?
 
-Then, familiar weight settled on my nose. The blurred ceiling sharpened as my glasses slid into place. Right. Lily's room.
+Then familiar weight settled on my nose. The blurred ceiling sharpened as my glasses slid into place. Right. Lily's room.
 
-"You're awake," she said.
+“You're awake,” she said.
 
-I adjusted the frames, trying to pull together whatever scraps of dignity I had left. "G-Gave up on the teacher look already?"
+It took me another moment to recall everything that just happened. The whole hot teacher incident. 
 
-"Just the glasses." Her voice had gone sheepish. "I got dizzy."
+I adjusted the frames, trying to salvage whatever dignity I had left. “G-Gave up on the teacher look already?”
 
-She was still wearing that whole ridiculous teacher costume, but whatever terrifying energy she'd been radiating before had completely evaporated. Now she just looked... kind of awkward, honestly.
+“Just the glasses.” Her voice had gone sheepish. “I got dizzy.”
+
+Indeed, she was still wearing that ridiculous teacher costume, but whatever terrifying energy she'd been radiating before had completely vanished. Now she just looked… kind of awkward, honestly.
 
 I could work with awkward. Awkward was manageable.
 
-She shifted slightly, looking down at me. "So, Student Karin," she said, that playful lilt sneaking back into her voice. "How are you doing in your other classes?"
+She shifted slightly, looking down at me. “So, Student Karin,” she said, that playful lilt sneaking back into her voice. “How are you doing in your other classes?”
 
 I thought about her question for a while. 
 
-The truth? This university doesn't actually care if you show up. Everything goes through the online portal, which is the only reason I'm still enrolled and not completely screwed. 
+The truth? This university doesn't actually care if you show up. Everything goes through the online portal. Only reason I'm still enrolled and not completely screwed. 
 
-But it's not like it's easy. I'm basically teaching myself from whatever the teachers post online and hoping I can piece together what the hell is going on. Though, to be fair, Lily's been bringing me notes. When she actually goes to class herself, anyway. Which... hasn't been as often lately. 
+But it's not like it's easy. I'm basically teaching myself from whatever scraps the professors post online and hoping I can piece together what the hell is going on. Though, to be fair, Lily's been bringing me notes. When she actually goes to class. Which… hasn't been as often lately. 
 
-"Not too bad," I mumbled.
+“Not too bad,” I mumbled.
 
-Her playful expression softened, replaced by... concern? "Are you having any issues with… not being able to leave your room?" She asked. 
+Her playful expression softened into something else. Concern, maybe? “Are you having any issues with… not being able to leave your room?” 
 
 _Oh._
 
-That was it, wasn't it? The whole absurd costume. The teacher role-play. All of it was just her roundabout way of asking this one question without making it feel like an interrogation.
+That was it. The whole absurd costume. The teacher role-play. All of it was just her roundabout way of asking this one question without making me feel cornered.
 
 She was worried. 
 
+About me.
+
 Doing all this just for someone like me was stupid. Completely, utterly stupid. 
 
-And somehow... It was very much her.
+And somehow… that was very Lily.
 
-For once, she didn't feel like some untouchable goddess stumbling into my disaster of a life. She just felt like... a girl. A weird, awkward girl who didn't know how to ask if I was okay without accidentally stepping on a landmine. 
+For once, she didn't feel untouchable. She just felt like… a girl. A weird, awkward girl who didn't know how to ask if I was okay without stepping on a landmine.
 
 I put an arm over my face to hide the blush that was starting to form.
 
-"I'm doing fine," I said, and it was mostly true. "This university doesn't really care about attendance. I don't know what I'll do about finals, though."
+“I'm doing fine,” I said, and it was mostly true. “This university doesn't really care about attendance. I don't know what I'll do about finals, though.”
 
-"Mhmm," she hummed, a noncommittal sound that told me she absolutely wasn't going to push it.
+“Mhmm. I see…” she hummed.
 
-I sat up. "What about you? You've been skipping a lot lately."
+I sat up. “What about you? You've been skipping a lot lately.”
 
-A small, proud smile touched her lips. "I do, don't I?" she said, not a hint of shame in her voice. 
+A small, proud smile touched her lips. “I do, don't I?” Not a hint of shame in her voice. 
 
-I almost laughed. Here she was, acting like cutting class was some kind of achievement. It was kind of funny actually, seeing this perfect princess type so damn pleased with herself for being a delinquent.
+I almost laughed. Here she was, acting like cutting class was some kind of achievement. It was kind of funny, seeing this perfect princess type so damn pleased with herself for being a delinquent.
 
-"Lily-sensei demands a report," she said, tapping the laptop screen. "English. Your grade?"
+“Lily-sensei demands a report,” she said, tapping the laptop screen. “English. Your grade?”
 
-"I should be good for at least a B+," I said, straightening up.
+“I should be good for at least a B+,” I said, straightening up.
 
-"That's really good!" She looked genuinely impressed, then her face fell. "That makes sense, you like writing." A heavy sigh. "I'm hoping for a C-."
+“That's really good!” She looked genuinely impressed, then her face fell. “That makes sense. You like writing.” A heavy sigh. “I'm hoping for a C-.”
 
 I blinked. Wait, seriously?
 
-I was actually... better at something than her? I'd just assumed she'd be crushing every class while I scraped by.
+I was actually… better at something than her? I'd just assumed she'd be crushing every class while I scraped by.
 
 Huh.
 
-"What about Calculus?" she asked, perking up immediately. Her eyes actually lit up. "That's one of my best classes. Almost an A."
+“What about Calculus?” she asked, perking up immediately. Her eyes actually lit up. “That's one of my best classes. Almost an A.”
 
-I stared at her. "Wait, really? Damn. I'm barely passing that one."
+I stared at her. “Wait, really? Damn. I'm barely passing that one.”
 
-She was... nothing like I'd imagined. In a weird way.
+Math. She was actually good at math. I'd written her off as purely artsy. All painting, no numbers. Turns out I was dead wrong.
 
-A smug little grin spread across her face. "I'll be happy to teach you one day."
+A smug little grin spread across her face. “I'll be happy to teach you one day.”
 
 My brain helpfully supplied an extremely detailed image of her leaning over my shoulder, explaining derivatives while wearing that stupidly short skirt—
 
 Nope. Not going there.
 
-"Yeah, yeah," I muttered, pushing the thought away. "We'll see."
+“Yeah, yeah,” I muttered, pushing the thought away. “We'll see.”
 
-I hesitated, then forced myself to ask the question that had been gnawing at me for weeks. "What about... Chemistry?"
+I hesitated, then forced myself to ask something that had been gnawing at me for weeks. “What about… Chemistry?”
 
-My voice came out smaller than I meant it to. "I haven't been able to submit any of the lab work. I don't know if I can even pass without—"
+My voice came out smaller than I meant it to. “I haven't been able to submit any of the lab work. I don't know if I can even pass without—”
 
-"Oh, don't worry about it," she cut in, waving a hand dismissively. "I already put you down as part of my lab group. You're covered."
+“Oh, don't worry about it,” she cut in, waving a hand dismissively. “I already put you down as part of my lab group. You're covered.”
 
-I froze. "You... what?"
+I froze. “You… what?”
 
-"For the group assignments," she said, like it was the most normal thing in the world. "I just wrote your name down. It's fine."
+“For the group assignments,” she said, like it was the most normal thing in the world. “I just wrote your name down. It's fine.”
 
 My throat felt tight. 
 
-"Though don't expect a C in that class," she added with a grimace. "I'm not exactly doing great myself."
+“Though don't expect a C in that class,” she added with a grimace. “I'm not exactly doing great myself.”
 
-She said it so casually. Like all she was doing for someone like was just normal. Not worth mentioning.
+She said it so casually. Like everything she was doing for someone like me was just normal. Not worth mentioning.
 
 But it wasn't nothing. Not to me.
 
-"Th-Thank you," I managed. I hated how small my voice sounded. "For… you know. The notes. And the… lab thing. All of it."
+“Th-Thank you,” I managed. My voice sounded small. “For… you know. The notes. And the… lab thing. All of it.”
 
 She looked at me then, and her face lit up with that bright smile that made my chest feel warm.
 
-"It's nothing," she said.
+“It's nothing,” she said.
 
 But it wasn't. It really wasn't.
 
-"Programming, though..." She shuddered.
+“Programming, though…” She shuddered.
 
-I looked at the laptop screen and remembered Risa's program. "The absolute worst," I agreed.
+I looked at the laptop screen and remembered Risa's program. “The absolute worst,” I agreed.
 
-"Pure suffering," she agreed.
+“Pure suffering,” she nodded.
 
-We looked at each other for a second, then a laugh escaped her lips, and a second later, one bubbled up out of my own chest. It felt strange, hearing the sound of my own laughter mixing with hers in the quiet room.
+We looked at each other for a second, then a laugh escaped her lips, and one bubbled up out of mine. Strange, hearing my own laughter mixing with hers in the quiet room.
 
-The sound of our combined laughter wasn't the sound of some weirdo laughing with a goddess. It was just... two girls. Maybe, she really was just as lost as I was. And maybe... maybe I could get used to this.
+It wasn't the sound of some weirdo laughing with a goddess. It was just… two girls. Lost. Figuring things out together.
+
+Maybe I could get used to this.
 
 ---
 
 The rest of the afternoon passed in a nice silence.
 
-I'd vetoed Lily's initial suggestion of ordering cake for dinner—again—and convinced her to get some actual food. We settled on Chinese takeout. Well, I settled on it. She pouted for a solid three minutes until I promised we'd get dessert after.
+I'd vetoed Lily's initial suggestion of ordering cake for dinner—again—and convinced her to get actual food. We settled on Chinese takeout. Well, I settled on it. She pouted for three solid minutes until I promised we'd get dessert after.
 
-The food arrived in white takeout boxes. It was fried rice. Not super healthy, but better than pure sugar. Lily battled her chopsticks for a solid five minutes before I slid her a spare fork, which she took it with a grateful smile.
+The food arrived in white takeout boxes. Fried rice. Not super healthy, but better than pure sugar. Lily battled her chopsticks for five minutes before I slid her a spare fork. She took it with a sheepish smile.
 
-We worked through assignments after eating, Risa's program doing most of the actual coding while we pretended to supervise. Lily's notes were surprisingly helpful, despite her now knowing most of what she was writing down. 
+We worked through assignments after eating, Risa's program doing most of the actual coding while we pretended to supervise. Lily's notes were surprisingly helpful, despite her not knowing most of what she was writing down. 
 
-When the sky outside had started to darken, I finally gathered my things. My back protested as I stretched, muscles stiff from hours of sitting on Lily's bed.
+When the sky outside started to darken, I finally gathered my things. My back protested as I stretched, muscles stiff from hours on Lily's bed.
 
-"Are you sure you don't want me to walk with you?" Lily asked from the bed, her voice laced with genuine concern.
+“Are you sure you don't want me to walk with you?” Lily asked from the bed, concern clear in her voice.
 
 My chest tightened. 
 
-Which, fair. A week ago, I couldn't even make it to the door without freezing.
+Fair. A week ago, I couldn't even make it to the door without freezing.
 
-"I'll be fine," I said, and for the first time in a long time, the words didn't feel like a complete lie.
+“I'll be fine,” I said. For the first time in a long time, it didn't feel like a complete lie.
 
-Her brow furrowed slightly, unconvinced.
+Her brow furrowed. Unconvinced.
 
-"I need to get used to it," I added, and those were my honest thoughts.
+“I need to get used to it,” I added. Honest.
 
-"Message me as soon as you get there, okay?" she insisted, sitting up.
+“Message me as soon as you get there, okay?” she insisted, sitting up.
 
-The concern in her voice made felt warm. She actually cared.
+The concern in her voice felt warm. She actually cared.
 
+“I will,” I said, and despite the nervous flutter in my stomach, my smile widened. “Promise.”
 
-"I will," I said, and despite the nervous flutter in my stomach, my smile widened. "Promise."
 I walked to her door, feeling a strange sense of accomplishment. It had been a good day. A really good day. I reached for the doorknob, ready to head back to my own room.
 
 My hand froze mid-air.
@@ -315,7 +326,7 @@ There, hanging from the outside of the door—visible to anyone walking down the
 
 My brain stalled.
 
-A sock. On the door. The universal dorm signal for "do not disturb, occupants are... occupied."
+A sock. On the door. The universal dorm signal for “do not disturb, occupants are… occupied.”
 
 Oh no.
 
@@ -323,25 +334,23 @@ Oh *no*.
 
 We'd been in here for hours. With the sock on the door. The *entire time*.
 
-My head turned with the slow, mechanical precision of someone whose neck had rusted solid. I looked back at Lily.
+My head turned with the slow, mechanical precision of rusted hinges. I looked back at Lily.
 
-She was sitting on her bed, hands folded in her lap, beaming at me with the most angelic, infuriatingly innocent smile I had ever seen in my entire life.
+She was sitting on her bed, hands folded in her lap, beaming at me with the most angelic, infuriatingly innocent smile I had ever seen in my life.
 
-"Lily," I said slowly, my voice barely above a whisper. "Why the hell is there a sock on your door?"
+“Lily,” I said slowly, my voice barely above a whisper. “Why the hell is there a sock on your door?”
 
-"Oh!" Her eyes lit up. "Risa said it's polite to put it up when you have visitors. I didn't forget."
+“Oh!” Her eyes lit up. “Risa said it's polite to put it up when you have visitors. I didn't want to forget.”
 
-She said it with such genuine earnestness that I couldn't tell if she was completely clueless about what it actually meant, or if she was the most devious person I'd ever met.
+She said it with such genuine earnestness that I couldn't tell if she was completely clueless or the most devious person I'd ever met.
 
-My face was on fire. "That's... that's not exactly what that means..."
+My face was on fire. “That's… that's not exactly what that means…”
 
-"It's not?" She tilted her head, the picture of innocent confusion.
+“It's not?” She tilted her head. Pure, innocent confusion.
 
 I was going to die. Right here. In Lily's doorway. Death by mortification.
 
-_She has NO IDEA what that means._
-
-A cold dread, far more terrifying than any demon in a miniskirt, washed over me. My hand fumbled for my phone. I hadn't checked it all day.
+A cold dread washed over me—far worse than any demon in a miniskirt. My hand fumbled for my phone. I hadn't checked it all day.
 
 The screen lit up.
 
@@ -353,4 +362,4 @@ _Oh no._
 
 I looked at Lily one more time. Still smiling. Completely, blissfully unaware of the social disaster she'd created.
 
-Risa is never, *ever* going to let me live this down...
+Risa was never, *ever* going to let me live this down.
